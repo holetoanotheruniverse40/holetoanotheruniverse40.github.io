@@ -13,6 +13,31 @@ image: 51732391125_a6a60014c4_k_iss066e08546.jpg
 
 ## SpaceWeather 4 [Splashdown](https://www.youtube.com/live/EqT3nDbwETc?si=3lNL5Pg-p3JSSE1G)
 
+
+# NASA’s SpaceX Crew-11 Re-Entry and Splashdown
+[Watch](https://plus.nasa.gov/scheduled-video/nasas-spacex-crew-11-re-entry-and-splashdown/) 
+Coverage of the Deorbit and Splashdown of the NASA/SpaceX Crew-11 Dragon Endeavour (Splashdown scheduled at 3:40 a.m. EST). ::  TODAY 4:45 PM NASA’s SpaceX Crew-11 Undocking [WATCH](https://plus.nasa.gov/scheduled-video/nasas-spacex-crew-11-undocking/) :: @spaceexplorationtechnologies @r-spacex  :: TODAY 2:00 PM
+NASA’s SpaceX Crew-11 Hatch Close [Watch](https://plus.nasa.gov/scheduled-video/nasas-spacex-crew-11-hatch-close/)
+
+other ppl feeds
+[
+
+[NASA SpaceX Crew-11 Medical Evacuation Mission  Hatch Close  LIVE](https://www.youtube.com/watch?v=mUvGkfu57as) 
+@blackgirlscode virtiserv [gasbuddylatrice](https://www.facebook.com/thevirtiservway/) question [Real Gun or Just a Lighter](https://youtube.com/shorts/rCdm9DHngc4?si=T8qhziMTLT_nLZtv)?
+<img  alt="image" src="https://github.com/user-attachments/assets/4ed1a1dc-e1ae-4004-bdd1-20b4bed0702c" />
+
+<img  alt="2026-01-12-00_00_2026-01-12-23_59_Sentinel-2_L2A_True_color" src="https://github.com/user-attachments/assets/928986a3-4ff6-491c-ba21-c97e9358dc23" />
+
+ 
+[Chief](https://www.santamonica.gov/) [Darrick Jacob](https://www.santamonica.gov/profiles/darrick-jacob) Swearing-in Ceremony [[1](https://www.tumblr.com/rashardmro/805741565299621888/apod-2026-january-13-a-solar-eruption-from)] [[2](https://podcasts.apple.com/us/podcast/santa-monicas-new-chief-darrick-jacob/id1849575550?i=1000742500498&l=es-MX)  [[3](https://www.smdp.com/darrick-jacob-appointed-as-santa-monica-chief-of-police/)  @blackgirlscode @la-county-isd @nasa-pds @nasa-jpl @nasa-openscapes [WATCH on @youtube](https://youtu.be/FY4-ZIo8aIQ) @whitehouse @dhs-gov ::: @CityOfLosAngeles i was dating Normani straight up [Adult Film Shot At Santa Monica Public Library ](https://youtu.be/uOq9PHp7MTo) and i saw her with certain people and wanna clear the record! @nasa-pds @emit-sds @nasa-openscapes @whitehouse @dhs-gov [NASA ARSET: Observations for Monitoring Global Terrestrial Surface Water, Part 1/2](https://youtu.be/9pjNfRAz7TA) : [NASA ARSET: Introduction to Animal Tracking and Remote Sensing at NASA, Part 1/2](https://youtu.be/M4oTCKS5mWg)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/78748364-41eb-45c9-b6b7-684e08f8cf0b" />
+
+
+ <img   alt="image" src="https://github.com/user-attachments/assets/ddd2940c-1dc2-4ba1-9ba3-98056274e901" />
+ <img  alt="image" src="https://github.com/user-attachments/assets/cc3f6e19-7f6f-4ef2-8faf-ab647e50d5a4" />
+
+
 <img   alt="image" src="https://github.com/user-attachments/assets/753ca3f4-e7e0-4235-861f-94f2ce9c1d68" />
 
 ![ECOv002_L2T_LSTE_42604_005_11SLT_20260110T025353_0713_01_view_zenith](https://github.com/user-attachments/assets/4391900e-e7c9-4cce-ac56-bc9a406aa31a)
