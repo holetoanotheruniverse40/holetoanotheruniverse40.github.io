@@ -19,8 +19,12 @@ image: 51732391125_a6a60014c4_k_iss066e08546.jpg
 
 <img  alt="Screenshot 2026-01-13 7 44 15 PM" src="https://github.com/user-attachments/assets/c40e5846-5ba6-48f1-b5c6-eee364b50c72" />
 
+![ECOv002_L3T_JET_42395_011_11SLT_20251227T154206_0713_01_cloud](https://github.com/user-attachments/assets/b8fa736d-7dc6-4a9e-a82b-6160ac29ed4a)
+
+
 <img  alt="ECOv002_L2T_LSTE_42604_005_11SLT_20260110T025353_0713_01" src="https://github.com/user-attachments/assets/940055c5-a81c-478b-a084-a08527c3fb1c" />
 
+<img   alt="PACE_OCI 20251129T212453 L2 OC_AOP V3_1 nc" src="https://github.com/user-attachments/assets/8453a672-47ab-4194-8bbd-3180a42c45d3" />
 
 [github.com/nasa/VITALS - ECOSTRESS Tasks and Guides](https://github.com/nasa/VITALS) <~ @CityOfLosAngeles HildaSolis KarenBass please [look](https://sdo.gsfc.nasa.gov/assets/img/latest/mpeg/latest_1024_0193.mp4) at the @nasa / Vitals repo. I am supposed to [work](https://sdo.gsfc.nasa.gov/assets/img/dailymov/2026/01/12/) out of that like a lot . . [OnlineLearning](https://ladsweb.modaps.eosdis.nasa.gov/stream/map#map=13.04/-13157364.10/4002286.61&layers=aqv_tss_20260107_sentinel:1.00:0.00:30.00:default&grids=1,0) +++ [President Trump signs bill to OFFICIALLY reopen the government, ending the Democrat Shutdown.](https://www.whitehouse.gov/videos/president-trump-signs-bill-to-officially-reopen-the-government-ending-the-democrat-shutdown/) [Democrats Shut Down the Government for a Record 43 Days](https://www.whitehouse.gov/government-shutdown-clock/) @whitehouse @nasa-jpl
 
