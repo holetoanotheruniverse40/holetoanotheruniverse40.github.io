@@ -42,11 +42,13 @@ image: 51732391125_a6a60014c4_k_iss066e08546.jpg
 https://cdn.star.nesdis.noaa.gov/GOES18/ABI/SECTOR/np/Sandwich/GOES18-NP-Sandwich-900x540.mp4
 [GOES-West - Sector view: Northern Pacific - Tropospheric Dust Content](https://www.star.nesdis.noaa.gov/goes/sector_band.php?sat=G18&sector=np&band=Dust&length=24)
 
-```
-Crew-11 Return, Splashdown Weather -#Rashard @NASAJPL/MROJUNO+EARTHDATA [LiNK](https://archive.org/details/g-18-fd-dmw-24fr-20260113-1807) : [FiLEs](https://archive.org/download/g-18-fd-dmw-24fr-20260113-1807) // 
 
 
-@noaa @noaagov @spacex-r [Link](https://www.swpc.noaa.gov/communities/space-weather-enthusiasts-dashboard) @spaceexplorationtechnologies hi @blackgirlscode @nasa-pds . . . @la-county-isd @stateofcalifornia @cityoflosangeles `spaceexplorationtechnologies` is claiming to be the account associated with the [Hawthorn Mission Control / Spacex]()  [Space Exploration Technologies (SpaceX) of Hawthorne - .pdf](https://www3.nasa.gov/centers/kennedy/pdf/684630main_CCiCap_SPACEX_Poster.pdf) / [`r/SpaceXLounge` - I Appreciate the Minimalist Mission Control in Hawthorne.](https://www.reddit.com/r/SpaceXLounge/comments/jv8btp/i_appreciate_the_minimalist_mission_control_in/) . . . [SpaceX employees standing outside mission control at SpaceX Headquarters in Hawthorne, California, watching the successful launch of Falcon 9 ... - WATCH](https://www.youtube.com/watch?v=6XtD-5L7cLk)
+Crew-11 Return, Splashdown Weather -#Rashard @NASAJPL/MROJUNO+EARTHDATA [LiNK](https://archive.org/details/g-18-fd-dmw-24fr-20260113-1807) : [FiLEs](https://archive.org/download/g-18-fd-dmw-24fr-20260113-1807) //
+ 
+
+
+@noaa @noaagov @spacex-r [Link](https://www.swpc.noaa.gov/communities/space-weather-enthusiasts-dashboard) @spaceexplorationtechnologies hi @blackgirlscode @nasa-pds . . . @la-county-isd @stateofcalifornia @cityoflosangeles `spaceexplorationtechnologies` is claiming to be the account associated with the [Hawthorn Mission Control / Spacex](https://www.jpl.nasa.gov/news/nasa-spacex-launch-us-european-satellite-to-monitor-earths-oceans/)  [Space Exploration Technologies (SpaceX) of Hawthorne - .pdf](https://www3.nasa.gov/centers/kennedy/pdf/684630main_CCiCap_SPACEX_Poster.pdf) / [`r/SpaceXLounge` - I Appreciate the Minimalist Mission Control in Hawthorne.](https://www.reddit.com/r/SpaceXLounge/comments/jv8btp/i_appreciate_the_minimalist_mission_control_in/) . . . [SpaceX employees standing outside mission control at SpaceX Headquarters in Hawthorne, California, watching the successful launch of Falcon 9 ... - WATCH](https://www.youtube.com/watch?v=6XtD-5L7cLk)
 
 ```
 NOAA Radio Blackout Activity and Forecast
@@ -127,7 +129,7 @@ ITs not serving results from common sense check box clicking... i spoke about it
 
 This is how its supposed to look 
 
-<img width="1919" height="1079" alt="image" src="https://github.com/user-attachments/assets/73bec032-095e-42d1-bea3-5c7506eec620" />
+<img  alt="image" src="https://github.com/user-attachments/assets/73bec032-095e-42d1-bea3-5c7506eec620" />
 <img alt="image" src="https://github.com/user-attachments/assets/1a176511-f548-4e02-8cfe-93cabae60986" />
 <img src="https://github.com/user-attachments/assets/caa6c166-84c8-40ad-a18e-11b4e2211a8d" alt="image"/>
 <img  alt="image" src="https://github.com/user-attachments/assets/59916f00-7508-4ce5-a18a-f6fd1c25082d" />
@@ -141,8 +143,6 @@ Following Crew-11’s departure on Wednesday, Jan. 14, NASA astronaut Zena Cardm
 [ReadMore](https://rashardmro.tumblr.com/post/805564863694946304/international-space-station-change-of-command)
 
 
-NASA SpaceX Crew-11 Medical Evacuation Mission Countdown with LIVE view [Link](https://youtu.be/mUvGkfu57as)
-Mars2020_sol1342-1710_RRF :" RearCam Vid [Link](https://rashardmro.tumblr.com/post/805579165327884288/mars2020sol1342-1710rrf)
 
 @blackgirlscode @nasa-pds <~ do you guys really care about [NearEarthOrbit](https://scan-now.gsfc.nasa.gov/) ? I got stuck [there](https://urs.earthdata.nasa.gov/profile) and really trying to make it back out! @nasa-jpl @nasa @whitehouse @la-county-isd @cityoflosangeles @stateofcalifornia [CHANGE_LOG](https://rashardsdata.github.io/changelog) [[1](https://rashardsdata.github.io/2025/11/05/BuildingBlocks.html)]
 
