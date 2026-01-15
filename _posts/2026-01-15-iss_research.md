@@ -13,8 +13,10 @@ image: 51732391125_a6a60014c4_k_iss066e08546.jpg
 
 ## SpaceWeather 4 [Splashdown](https://www.youtube.com/live/EqT3nDbwETc?si=3lNL5Pg-p3JSSE1G)
 
-# San Diego
 
+@nasa-jpl @LACMTA hr [@la-county-sd @cityoflosangeles Scabs](https://rashardmro.tumblr.com/post/805837304488935424) 
+
+# San Diego
 "Dragon [SpaceX](https://www.facebook.com/ISS/videos/a-mission-to-inspire-may-30-2025/1683840579191525/) is no longer [privatized](https://www.nasa.gov/humans-in-space/commercial-space/commercial-crew-program/commercial-crew-program-essentials/)" - @nsa @r-spacex announcer @blackgirlscode @cityoflosangeles @la-county-isd @Stateofcalifornia @axiomhq @TheSpaceDevs @BlueOrigin @rocketlab
 
 # LAnded!
