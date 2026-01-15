@@ -13,6 +13,25 @@ image: 51732391125_a6a60014c4_k_iss066e08546.jpg
 
 ## SpaceWeather 4 [Splashdown](https://www.youtube.com/live/EqT3nDbwETc?si=3lNL5Pg-p3JSSE1G)
 
+# San Diego
+[Map](https://ladsweb.modaps.eosdis.nasa.gov/stream/map#map=11.85/-13037791.47/3838887.09&layers=aqv_tss_20260107_sentinel:1.00:0.00:30.00:default&grids=1,0) 
+[https://eol.jsc.nasa.gov/ExplorePhotos/?mrf=ISS035-E-27235&illum=day](https://eol.jsc.nasa.gov/ExplorePhotos/?mrf=ISS035-E-27235&illum=day)
+<img  alt="image" src="https://github.com/user-attachments/assets/5fab6cae-045e-49b8-b84f-6d3f53e71f68" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/1478e7e0-ad1b-4d66-bb63-cf7ab976b51c" />
+
+
+<div class="section_2col">
+    
+{% for image in site.static_files %}
+    {% if image.path contains 'assets/images/gallery-sdlandingprepcrew10' | sort: 'date' | reverse %} 
+        <a href="{{ site.baseurl }}{{ image.path }}" target="_blank">
+            <img src="{{ site.baseurl }}{{ image.path }}" alt="" class="img-thumbnail" />
+        </a>
+    {% endif %}
+{% endfor %}
+
+</div>
 
 # NASA’s SpaceX Crew-11 Re-Entry and Splashdown
 [Watch](https://plus.nasa.gov/scheduled-video/nasas-spacex-crew-11-re-entry-and-splashdown/) 
@@ -20,11 +39,14 @@ Coverage of the Deorbit and Splashdown of the NASA/SpaceX Crew-11 Dragon Endeavo
 NASA’s SpaceX Crew-11 Hatch Close [Watch](https://plus.nasa.gov/scheduled-video/nasas-spacex-crew-11-hatch-close/)
 
 other ppl feeds
-[
 
-[NASA SpaceX Crew-11 Medical Evacuation Mission  Hatch Close  LIVE](https://www.youtube.com/watch?v=mUvGkfu57as) 
+
+[NASA SpaceX Crew-11 Medical Evacuation Mission  Hatch Close  LIVE - MOTORWORLD](https://www.youtube.com/watch?v=mUvGkfu57as) 
 @blackgirlscode virtiserv [gasbuddylatrice](https://www.facebook.com/thevirtiservway/) question [Real Gun or Just a Lighter](https://youtube.com/shorts/rCdm9DHngc4?si=T8qhziMTLT_nLZtv)?
 <img  alt="image" src="https://github.com/user-attachments/assets/4ed1a1dc-e1ae-4004-bdd1-20b4bed0702c" />
+
+
+<img  alt="image" src="https://github.com/user-attachments/assets/7c28dc53-c3bc-4ce3-aa7a-f64024940af7" />
 
 <img  alt="2026-01-12-00_00_2026-01-12-23_59_Sentinel-2_L2A_True_color" src="https://github.com/user-attachments/assets/928986a3-4ff6-491c-ba21-c97e9358dc23" />
 
