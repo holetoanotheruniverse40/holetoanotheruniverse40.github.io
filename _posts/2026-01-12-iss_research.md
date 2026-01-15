@@ -13,6 +13,32 @@ image: 51732391125_a6a60014c4_k_iss066e08546.jpg
 
 ## SpaceWeather 4 [Splashdown](https://www.youtube.com/live/EqT3nDbwETc?si=3lNL5Pg-p3JSSE1G)
 
+# San Diego
+
+
+
+
+[Map](https://ladsweb.modaps.eosdis.nasa.gov/stream/map#map=11.85/-13037791.47/3838887.09&layers=aqv_tss_20260107_sentinel:1.00:0.00:30.00:default&grids=1,0) 
+
+@TheSpaceDevs @BlueOrigin @la-county-isd @blackgirlscode @nasa-pds @UCSD @opensandiego @CityofSandiego @COSD-PANDA
+<img  alt="image" src="https://github.com/user-attachments/assets/1478e7e0-ad1b-4d66-bb63-cf7ab976b51c" />
+
+
+[https://eol.jsc.nasa.gov/ExplorePhotos/?mrf=ISS035-E-27235&illum=day](https://eol.jsc.nasa.gov/ExplorePhotos/?mrf=ISS035-E-27235&illum=day)
+<img  alt="image" src="https://github.com/user-attachments/assets/5fab6cae-045e-49b8-b84f-6d3f53e71f68" />
+
+
+<div class="section_2col">
+    
+{% for image in site.static_files %}
+    {% if image.path contains 'assets/images/gallery-sdlandingprepcrew10' | sort: 'date' | reverse %} 
+        <a href="{{ site.baseurl }}{{ image.path }}" target="_blank">
+            <img src="{{ site.baseurl }}{{ image.path }}" alt="" class="img-thumbnail" />
+        </a>
+    {% endif %}
+{% endfor %}
+
+</div>
 
 @nasa-jpl @LACMTA hr [@la-county-sd @cityoflosangeles Scabs](https://rashardmro.tumblr.com/post/805837304488935424) 
 
