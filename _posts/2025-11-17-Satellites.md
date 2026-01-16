@@ -8,6 +8,14 @@ author: "RashardKelly @nasa-jpl"
 ---
 
 
+<img  alt="image" src="https://github.com/user-attachments/assets/f4e4b70e-019e-494d-87f0-308285722d1c" />
+
+![Nisar](https://d2pn8kiwq2w21t.cloudfront.net/images/Nisar-Artwork-v4.2e16d0ba.fill-1024x441-c10.jpg)
+[Nisar @nasa-jpl](https://science.jpl.nasa.gov/projects/nisar/)
+[NEAR SPACE NETWORK DTE NOW](https://scan-now.gsfc.nasa.gov/dte) :: @la-county-isd @cityoflosangeles @stateofcalifornia  this is our [@nasa-jpl](https://www.jpl.nasa.gov/images/pia21118-a-snowy-entrance/) build [[1](https://www.isro.gov.in/Mission_GSLVF16_NISAR_Home.html)] [[2](https://www.jpl.nasa.gov/images/pia26615-nasa-isro-radar-satellite-captures-first-image-of-north-dakota-wetlands-farmlands/)] with [@ISRO](https://www.isro.gov.in/) [NiSAR - PRESSKiT _ PDF](https://d2pn8kiwq2w21t.cloudfront.net/documents/nisar-press-kit.pdf) /// @blackgirlscode [LearningLatrice](https://www.tumblr.com/santamonicashaadi/805853842694602752/gasbuddylatrice?source=share) - i think she super cool and hardworking . . . [virtiserv](https://www.facebook.com/thevirtiservway/) @howard-university-web-services
+<img  alt="image" src="https://github.com/user-attachments/assets/d640caa4-b293-4d0c-b734-e5928d458000" />
+
+
 [EDSNSMALLSATS](https://www.nasa.gov/smallspacecraft/edsn-mission/)
 @BLACKGIRLSCODE HI NiOR
 
