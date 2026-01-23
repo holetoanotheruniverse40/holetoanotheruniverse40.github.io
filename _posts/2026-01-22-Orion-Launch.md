@@ -4,9 +4,55 @@ title:  "Orion/Artemis @nasa @r-spaceX"
 published: true
 date:   2026-01-22 08:19:06 -0800
 tags: nsn ecostress crew11 iss
-image: boarding-pass.jpg
+image: Kelp_southAmerica_NGS.jpg
 ---
+@NASA's Artemis II Live Views from Kennedy Space Cente
+[Live Views](https://youtu.be/nrVnsO_rdew)
+## Artemis 2
+@asc-csa hi its [rashard](https://rashardmro.tumblr.com/) from [M_R_O](https://science.jpl.nasa.gov/projects/mro/) im keeping my launches separated as i grow with blogging in this department... I dont know @nasa kennedy github, but i am emailing from [rashardsdata@proton.me](mailtto:rashardsdata@proton.me) and I hope you guys benefit from my research! - MissionControlUnixHelpdesk - Rashard [@uclaioes](https://uclaioes.github.io/shorelines/) https://uclaioes.github.io/shorelines/
+[presskit](https://www.nasa.gov/artemis-ii-press-kit/) __ CSA `Information kit – Artemis II mission` [Link - asc-csa.gc.ca/eng/missions/artemis-ii/information-kit.asp](https://www.asc-csa.gc.ca/eng/missions/artemis-ii/information-kit.asp) @ESA [GLOBALKELPCOVER](https://www.earthdata.nasa.gov/about/competitive-programs/csesp/global-kelp-cover)
+Kelp forests change frequently, and often out of sight from scientists. Infrared imagery changes that. [Article](https://science.nasa.gov/earth/earth-observatory/floating-forests-revealed-85023/)
+~ [Artemis II Media Resources `https://www.nasa.gov/humans-in-space/artemis-ii-media-resources/`](https://www.nasa.gov/humans-in-space/artemis-ii-media-resources/)
+@TheSpaceDevs @NASA-DEVELOP @NASA-GiSS
+## Things to watch out for . . .
+@la-county-isd Have you ever walked along a California coast and wondered about all of the kelp washed-up on shore? - [BeachedKelpExplained](https://science.nasa.gov/missions/landsat/explaining-beached-kelp/) [KELPFOREST](https://science.nasa.gov/earth/earth-observatory/monitoring-the-collapse-of-kelp-forests-148391/) @cityofsandiego the splashdown for Orion is supposed to be in San Diego , I dont know how far the [Kelp](https://kelpwatch.org/map?zoom=2.00000&center=-82.00000%2C8.00000&startYear=1984&endYear=2025&timeFilter=all&currentStep=1984.2&kelpSource=landsat) foresst reach. This dataset from[Kelpwatch.org](https://kelpwatch.org/) will help get us all there [[1](https://portal.edirepository.org/nis/mapbrowse?scope=knb-lter-sbc&identifier=74)],  is that y you dont land here often? We would love to have you @nasa-jpl @cityoflosangeles @nasa-jpl [pdf](https://www.jpl.nasa.gov/site/research/media/posters/2023/SP22016p.pdf) // [SLS-4659_MSFC_08152023_August 2023 Resource Reel](https://images.nasa.gov/details/SLS-4659_MSFC_08152023_August%202023%20Resource%20Reel)
 
+[https://science.nasa.gov/earth/earth-observatory/finding-cortez-85059/](https://science.nasa.gov/earth/earth-observatory/finding-cortez-85059/)
+<img   alt="image" src="https://github.com/user-attachments/assets/0700cdd3-eaf0-441a-8cd0-ec85c6c7efe8" />
+
+Using AVIRIS and Machine Learning to Map and Discriminate Bull Kelp and Giant Kelp along the Pacific Coast of the United States SEPTEMBER 17, 2018 BY [ADMIN Tanner T](https://cce.nasa.gov/biodiversity/_biomap/projmap.html?projType=project&projID=4444&progID=10)hompson and Dr. [Ryan Jensen](https://socialsciences.byu.edu/directory/ryan-jensen), Department of Geography... _Dr. Jensen is very knowledgable about Africa_ [READ](https://scholarsarchive.byu.edu/cgi/viewcontent.cgi?article=1246&context=jur) [[1](https://www.ratemyprofessors.com/professor/1064147)] [[2](https://scholarsarchive.byu.edu/cgi/viewcontent.cgi?article=1246&context=jur)] @emit-sds @nasa [World’s Largest Dynamic Kelp Map Launched - Apr 04, 2022](https://science.nasa.gov/missions/landsat/worlds-largest-dynamic-kelp-map-launched/) ::: [Kelp Forests at the End of the Earth](https://science.nasa.gov/missions/landsat/kelp-forests-at-the-end-of-the-earth/)
+
+# Floating Forests
+[Link 2 Map - floating-forests](https://www.zooniverse.org/projects/zooniverse/floating-forests) 
+<img  alt="image" src="https://github.com/user-attachments/assets/a7c276d2-d49f-459c-b0c3-f8f71fe2c6cf" />
+
+[- The Bay Foundation (TBF) is a world leader in the effort to restore kelp forests -](https://www.santamonicabay.org/what-we-do/projects/kelp-forest-restoration-project/) @ucla 
+<img   alt="image" src="https://github.com/user-attachments/assets/a1a24dea-895a-4ed8-b457-13f2d77b2b99" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/1d15f44a-ff45-40ea-bcc1-27c08ee43ddb" />
+
+### Monitoring kelp for conservation
+[Link Kelpwatch.org](https://kelpwatch.org/)
+Time series of quarterly NetCDF files of kelp biomass in the canopy from @Landsat 5, 7 and 8, since 1984 (ongoing) [[1](https://portal.edirepository.org/nis/mapbrowse?scope=knb-lter-sbc&identifier=74)]
+Bell, T., K. Cavanaugh, and D. Siegel. 2025. SBC LTER: Time series of quarterly NetCDF files of kelp biomass in the canopy from Landsat 5, 7 and 8, since 1984 (ongoing) ver 31. Environmental Data Initiative. https://doi.org/10.6073/pasta/18874c2802c4defd4b331cac827676c5 (Accessed 2026-01-22). @usgs @la-county-isd @cityoflosangeles @deptofdefense @Stateofcalifornia @blackgirlscode [NASA ARSET: Monitoring Aquatic Vegetation with Remote Sensing, Part 1/3](https://youtu.be/V_XfiGzA9dA) :: ["ANOTHER MAN'S FAMILY" 1975 FIRE SAFETY FILM DANGERS OF SMOKING CIGARETTES IN BED GG39865](https://youtu.be/RGmjdJDPWjA) :: [$5.6 million Santa Monica breakwater restoration project on Bay Foundation wish list](https://www.smdp.com/5-6-million-santa-monica-breakwater-restoration-project-on-bay-foundation-wish-list/)
+<img  alt="image" src="https://github.com/user-attachments/assets/0a7f3ba5-7817-43c6-bf0a-95a2d7bbc72a" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/513dd400-6a92-4b1f-8445-431acbb7364e" />
+
+![SMDP](https://www.smdp.com/content/images/size/w320/format/webp/2025/07/SMDP-new-logo-300x128-1-1.webp)
+
+## Major Mission Milestones @whitehouse
+
+
+@nasa-pds [POSTER](https://images-assets.nasa.gov/image/Artemis%20II%20Mission%20Trajectory%20Final/Artemis%20II%20Mission%20Trajectory%20Final~large.jpg?w=1920&h=1309&fit=clip&crop=faces%2Cfocalpoint)
+<img  alt="image" src="https://github.com/user-attachments/assets/fdaf7fd9-3a40-4e1b-a0f0-be8cd8c332dd" />
+
+[Poster](https://www.nasa.gov/wp-content/uploads/2023/02/artemis-ii-missionmap-public-082025.jpg)
+<img  alt="image" src="https://github.com/user-attachments/assets/48dda1c2-6115-47c7-a74e-c252ea2564ab" />
+
+[Launch of Orion Spacecraft Ascent Abort-2 Test](https://youtu.be/rJgqhznBntE) :: @youtube playlist @uber [Orion Spacecraft](https://youtube.com/playlist?list=PLiuUQ9asub3STzGKMhwHUTdqyiiXFCSBY&si=odtliBF1ZoTsdukx)
+
+---
 
 [Questions regarding NASA Data and Orion Pipelines #474](https://github.com/sintel-dev/Orion/discussions/474)
 `What is the sampling frequency of the NASA data supplied with the library?` [link](https://github.com/sintel-dev/Orion/discussions/474#discussion-5771319) @nasa-jpl i am being derailed online, i want to say im sorry to allied, they had a population of really dirty gaurds from atlanta that were bullying me for a couple years while i had to play normani @blackgirlscode `on the shelf ` [boyfriend](http://rashard.urbanup.com/12323326) while she got away from some pornographer
@@ -206,5 +252,6 @@ is this a used ride @nasa-jpl ? @NASA-IMPACT @nasa-jsc-robotics
 
 <img   alt="image" src="https://github.com/user-attachments/assets/bc55494b-9f30-4814-898e-54e3d33be7df" />
 
+<img   alt="image" src="https://github.com/user-attachments/assets/8b4eb8dc-59b1-47d7-9bec-37c496f593a4" />
 
 ## SpaceWeather 4 [Splashdown](https://www.youtube.com/live/EqT3nDbwETc?si=3lNL5Pg-p3JSSE1G)
