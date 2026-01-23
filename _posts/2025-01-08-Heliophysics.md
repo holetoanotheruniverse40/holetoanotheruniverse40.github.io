@@ -2,7 +2,7 @@
 layout: post
 mermaid: true
 title:  "Heliophysics"
-date:   2026-01-12 22:51:06 -0800
+date:   2026-01-23 22:51:06 -0800
 published: true
 image: latest_1024_0193.jpg
 tags: covid
@@ -11,6 +11,26 @@ tags: covid
 
 # Heliophysics
 The Science Mission Directorate Heliophysics Division studies the nature of the Sun, and how it influences the very nature of space 
+
+### Nuclear Spectroscopic Telescope Array
+
+## NuSTAR
+The Nuclear Spectroscopic Telescope Array, or NuSTAR, mission studies the universe in high energy X-rays to better understand the dynamics of black holes, exploding stars and the most extreme active galaxies.
+## NuSTAR's Quiet Sun _[WATCH](https://youtu.be/vIGRdOuOqBc)_
+Science Video • October 17th, 2018
+This is the first full view of the quiet Sun with NASA's Nuclear Spectroscopic Telescope Array (NuSTAR). The high-energy X-rays from NuSTAR are shown in comparison to EUV images from NASA’s Solar Dynamics Observatory/Atmospheric Imaging Assembly instrument (SDO/AIA) and the X-ray Telescope (XRT) on JAXA’s Hinode. These three telescopes all captured the quiet Sun on September 28, 2018, with the NuSTAR images made from a mosaic of smaller images. [WATCH](https://youtu.be/vIGRdOuOqBc)
+[Read_More](https://nustar.caltech.edu/video/nustar181017v1) @blackgirlscode @la-county-isd [Homepage](https://nustar.caltech.edu/) [MissionSite](https://www.jpl.nasa.gov/missions/nuclear-spectroscopic-telescope-array-nustar/)
+
+[NuSTAR - eyes.nasa.gov](https://eyes.nasa.gov/apps/solar-system/#/sc_nustar)
+[NuSTAR at the 247th Meeting of the American Astronomical Society](https://nustar.caltech.edu/news/nustar250116)
+`bonus` [NASA selected Boeing in December 2007 to built the third generation of TDRS (Tracking & Data Relay Satellite)](https://space.skyrocket.de/doc_sdat/tdrs-11.htm) @emit-sds 
+
+<img  alt="image" src="https://github.com/user-attachments/assets/1e000f28-8e0b-4810-9743-2829e5f6e719" />
+
+
+![NuSTAR](https://nustar.caltech.edu/assets/nustar_silhouette_name-8b5f80aabe38a1a7a929c9e9e3b4815faed029f99a388d23c538e3502c8d9bc5.png) 
+
+<img alt="image" src="https://github.com/user-attachments/assets/c877eee4-e616-4984-ba3f-504f1db53d66" />
 
 # Stereo
 @nasa-jpl @blackgirlscode its back up but with a warning @whitehouse 
