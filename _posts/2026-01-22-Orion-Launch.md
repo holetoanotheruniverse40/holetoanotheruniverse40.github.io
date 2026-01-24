@@ -7,12 +7,23 @@ tags: nsn ecostress crew11 iss
 image: Kelp_southAmerica_NGS.jpg
 ---
 @NASA's Artemis II Live Views from Kennedy Space Cente
-[Live Views](https://youtu.be/nrVnsO_rdew)
+[Live Views](https://youtu.be/nrVnsO_rdew) ::: [Radio](https://session.wefunkradio.com/radio/play) 
+- Jumpto `weather` [space-weather](#space-weather) 
 ## Artemis 2
+
+## 3 Americans and a Human - The Flame Trench
+[WATCH](https://www.youtube.com/watch?v=wAcfrvKDqR0) @nasa-pds @blackgirlscode `This is Gavin Newsom` [Watch](https://www.youtube.com/@ThisisGavinNewsom) @StateofCalifornia @NASASpaceFlight
+
+<img  alt="image" src="https://github.com/user-attachments/assets/1bef2b59-658c-4701-88a7-8af5cdb7c8bb" />
+
+
+
 @asc-csa hi its [rashard](https://rashardmro.tumblr.com/) from [M_R_O](https://science.jpl.nasa.gov/projects/mro/) im keeping my launches separated as i grow with blogging in this department... I dont know @nasa kennedy github, but i am emailing from [rashardsdata@proton.me](mailtto:rashardsdata@proton.me) and I hope you guys benefit from my research! - MissionControlUnixHelpdesk - Rashard [@uclaioes](https://uclaioes.github.io/shorelines/) https://uclaioes.github.io/shorelines/
 [presskit](https://www.nasa.gov/artemis-ii-press-kit/) __ CSA `Information kit – Artemis II mission` [Link - asc-csa.gc.ca/eng/missions/artemis-ii/information-kit.asp](https://www.asc-csa.gc.ca/eng/missions/artemis-ii/information-kit.asp) @ESA [GLOBALKELPCOVER](https://www.earthdata.nasa.gov/about/competitive-programs/csesp/global-kelp-cover)
 Kelp forests change frequently, and often out of sight from scientists. Infrared imagery changes that. [Article](https://science.nasa.gov/earth/earth-observatory/floating-forests-revealed-85023/)
-~ [Artemis II Media Resources `https://www.nasa.gov/humans-in-space/artemis-ii-media-resources/`](https://www.nasa.gov/humans-in-space/artemis-ii-media-resources/)
+~ [Artemis II Media Resources `https://www.nasa.gov/humans-in-space/artemis-ii-media-resources/`](https://www.nasa.gov/humans-in-space/artemis-ii-media-resources/) ### Rare Interview With Martin Luther King Jr 
+[watch](https://youtu.be/P1KI33vtn9U)
+Restored by [The Paley Center](https://www.paleycenter.org/), [David Susskind](https://blogs.loc.gov/now-see-hear/2023/09/david-susskind-speaks-again/)'s extraordinary interview with Dr. [Martin Luther King](https://www.loc.gov/item/today-in-history/january-15/), Jr., which originally aired on June 9, 1963. [[1](https://www.youtube.com/watch?v=smEqnnklfYs)] [[2](https://youtu.be/QEPNGf7rS0M?si=jAHVK8x3YmLr7iDN)] [[3](https://youtu.be/ZmtOGXreTOU?si=0v770k2ew-3LG3nn)] [[4](https://youtu.be/QXqlziZV63k?si=XCQ5tHVKMnF4YJ1M)] [[5](https://youtu.be/DQYzHIIQ1O4?si=Dsh5908JKYzyiCEL)] @whitehouse
 @TheSpaceDevs @NASA-DEVELOP @NASA-GiSS
 ## Things to watch out for . . .
 @la-county-isd Have you ever walked along a California coast and wondered about all of the kelp washed-up on shore? - [BeachedKelpExplained](https://science.nasa.gov/missions/landsat/explaining-beached-kelp/) [KELPFOREST](https://science.nasa.gov/earth/earth-observatory/monitoring-the-collapse-of-kelp-forests-148391/) @cityofsandiego the splashdown for Orion is supposed to be in San Diego , I dont know how far the [Kelp](https://kelpwatch.org/map?zoom=2.00000&center=-82.00000%2C8.00000&startYear=1984&endYear=2025&timeFilter=all&currentStep=1984.2&kelpSource=landsat) foresst reach. This dataset from[Kelpwatch.org](https://kelpwatch.org/) will help get us all there [[1](https://portal.edirepository.org/nis/mapbrowse?scope=knb-lter-sbc&identifier=74)],  is that y you dont land here often? We would love to have you @nasa-jpl @cityoflosangeles @nasa-jpl [pdf](https://www.jpl.nasa.gov/site/research/media/posters/2023/SP22016p.pdf) // [SLS-4659_MSFC_08152023_August 2023 Resource Reel](https://images.nasa.gov/details/SLS-4659_MSFC_08152023_August%202023%20Resource%20Reel)
@@ -241,9 +252,27 @@ is this a used ride @nasa-jpl ? @NASA-IMPACT @nasa-jsc-robotics
 ![Orion from a soudi](https://cdnx.premiumread.com/?url=https://www.saudigazette.com.sa/uploads/images/2022/12/11/2056770.jpg&w=850&q=100&f=webp)
 <img   alt="image" src="https://github.com/user-attachments/assets/6404eb20-efc9-4a15-8362-18c982e156f6" />
 
-
+#  space-weather 
+# 
 ## SpaceWeather 4 [LAUNCH](https://youtu.be/_3tk2f-X15U)
 
+@cityofSandiego @cityoflosangeles [NASA_STREAM_MAP](https://ladsweb.modaps.eosdis.nasa.gov/stream/map#map=14.15/-13036065.54/3839414.84&layers=aqv_chla_20260114_sentinel:1.00:0.00:30.00:default&grids=1,0) @nasa-jpl @TheSpaceDevs @blueorigin @spaceexplorationtechnologies @r-spacex @blackgirlscode @la-county-isd . . . @cityoflosangeles I include you all even when its slated for SD because we could still get it. Thats not a big difference coming from outerspace
+<img  alt="image" src="https://github.com/user-attachments/assets/e097ff42-bd42-491e-99b7-1b35b3dbadf0" />
+
+
+S1A_IW_GRDH_1SDV_20260123T134439_20260123T134504_062895_07E3A9_A570
+<img   alt="image" src="https://github.com/user-attachments/assets/5c4b5f1a-4e7c-4d4f-9083-35485704015a" />
+@cityoflosangeles @nasa-jpl @CityOfLosangeles @LA-County-iSd 
+S1C_IW_GRDH_1SDV_20260122T135139_20260122T135204_006017_00C107_727D
+
+<img  alt="image" src="https://github.com/user-attachments/assets/ad198a34-6a8d-4bc7-86e3-23e7d20c3dd4" />
+
+@NASA STREAM [Arset Training](https://www.earthdata.nasa.gov/learn/trainings/monitoring-water-quality-lakes-coastal-regions-using-stream)  ~ [Resources](https://www.earthdata.nasa.gov/data/projects/arset/learn) // link to [ThisMap]
+`STREAM` = An upcoming training offered by NASA's ARSET program introduces a web-based platform for monitoring lake and coastal water conditions using satellite data. [ReadMORE](https://www.earthdata.nasa.gov/news/let-water-quality-information-flow-nasa-stream)
+(https://ladsweb.modaps.eosdis.nasa.gov/stream/map#map=12.14/-13025325.43/3854465.22&layers=aqv_chla_20260114_sentinel:1.00:0.00:30.00:default&grids=1,0)
+<img   alt="image" src="https://github.com/user-attachments/assets/69ec1f41-ec66-4fdf-8982-ea5795030b55" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/b2885a24-c834-491b-8273-00e3122d8282" />
 ![A2](https://www3.nasa.gov/send-your-name-with-artemis/img/logo--rocket.png)
 
 @blackgirlscode [GymTeacherShit](https://youtu.be/9jRKsH8_OWQ?si=52rMxhLnKzTVtl9Q) normani there you go! @emit-sds 
@@ -255,3 +284,6 @@ is this a used ride @nasa-jpl ? @NASA-IMPACT @nasa-jsc-robotics
 <img   alt="image" src="https://github.com/user-attachments/assets/8b4eb8dc-59b1-47d7-9bec-37c496f593a4" />
 
 ## SpaceWeather 4 [Splashdown](https://www.youtube.com/live/EqT3nDbwETc?si=3lNL5Pg-p3JSSE1G)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/1b3bed04-da56-4776-8624-d42afea200c5" />
+

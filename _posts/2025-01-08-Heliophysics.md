@@ -2,10 +2,11 @@
 layout: post
 mermaid: true
 title:  "Heliophysics"
-date:   2026-01-23 22:51:06 -0800
+date:   2026-01-23 12:51:06 -0800
 published: true
 image: latest_1024_0193.jpg
 tags: covid
+permalink: Sun
 ---
 
 
@@ -24,6 +25,12 @@ This is the first full view of the quiet Sun with NASA's Nuclear Spectroscopic T
 [NuSTAR - eyes.nasa.gov](https://eyes.nasa.gov/apps/solar-system/#/sc_nustar)
 [NuSTAR at the 247th Meeting of the American Astronomical Society](https://nustar.caltech.edu/news/nustar250116)
 `bonus` [NASA selected Boeing in December 2007 to built the third generation of TDRS (Tracking & Data Relay Satellite)](https://space.skyrocket.de/doc_sdat/tdrs-11.htm) @emit-sds 
+[NuSTAR - TUMBLR_POST](https://www.tumblr.com/rashardmro/806558877712875520/monitoring-water-quality-in-lakes-and-coastal?source=share)
+
+[jpl](https://www.jpl.nasa.gov/missions/nuclear-spectroscopic-telescope-array-nustar/) / [Wiki](https://en.wikipedia.org/wiki/NuSTAR) / @CalTech @nasa-jpl [nustar.caltech.edu/](https://nustar.caltech.edu/) // [heasarc.gsfc.nasa.gov/docs/nustar/](https://heasarc.gsfc.nasa.gov/docs/nustar/)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/5f1ae23b-585b-4bfd-8b34-17236fff604b" />
+
 
 <img  alt="image" src="https://github.com/user-attachments/assets/1e000f28-8e0b-4810-9743-2829e5f6e719" />
 

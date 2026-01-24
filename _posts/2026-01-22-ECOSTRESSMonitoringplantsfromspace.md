@@ -8,6 +8,34 @@ image: ecostressjplnasagov-eco-booster.jpg
 somafm [SaceStationSOMA](https://somafm.com/spacestation/) OR [Deep Space One](https://somafm.com/deepspaceone/)
 [current](https://youtu.be/d8yGrk0Sfxg?t=2335) = [UHF](https://dn720405.ca.archive.org/0/items/uhf_20221230/UHF.mp4)
 
+<img   alt="image" src="https://github.com/user-attachments/assets/8aadee77-3237-49f3-aaed-6863c3ad8a4c" />
+
+@nasa-jpl @la-county-isd [Gallery](https://ecostress.jpl.nasa.gov/gallerylist)
+<img  alt="image" src="https://github.com/user-attachments/assets/6a133c49-2446-46de-a797-817b92b38623" />
+
+
+<img   alt="image" src="https://github.com/user-attachments/assets/b22138a3-30d9-4132-84be-ea9599c03821" />
+
+
+Hi i thought i was looking at [EcoStress](https://ecostress.jpl.nasa.gov/science) data, but was wrong its Sunomi. The file name gave it away [`VNP47MOD`](https://www.earthdata.nasa.gov/data/catalog/lpcloud-vnp47mod-002) @nasa-jpl @TheSpaceDevs @blackgirlscode but i have been accessing [Ecostress](https://search.earthdata.nasa.gov/search/granules?p=C2076090826-LPCLOUD&pg[0][v]=f&pg[0][gsk]=-start_date&q=ecostress&circle[0]=-120.3231%2C35.49987%2C503602&lat=35.49967206700306&long=-116.22071450848452&zoom=6.262196438499686) data for the [Los Angeles Fire Recovery](https://rashardgds.github.io/2025/08/13/FireReportCleanUp.html)- // FireSense Satellite Fleet [Link](https://svs.gsfc.nasa.gov/search/?keywords=Fires) @whitehouse 
+
+
+![ezgif com-animated-gif-maker (1)](https://github.com/user-attachments/assets/6411ee49-7b67-4443-a1fa-102f856059fc)
+
+
+The NASA/NOAA Suomi National Polar-orbiting Partnership (Suomi NPP) Visible Infrared Imaging Radiometer Suite (VIIRS) FIre Light Detection Algorithm-2 (FILDA-2) Modified Combustion Efficiency (MCE) swath product (VNP47MOD) is produced in 6-minute orbit 
+
+`old` 
+```
+# - ECOSTRESS img DATATYPES
+Datastore = `https://e4ftl01.cr.usgs.gov/WORKING/BRWS` @usgs
+pg VNIR, TIR, SWIR
+```
+
+![https://e4ftl01.cr.usgs.gov/WORKING/BRWS/Browse.001/2026.01.23/BROWSE.VNP47MOD.A2026022.1624.002.2026023021805.1.jpg](https://e4ftl01.cr.usgs.gov/WORKING/BRWS/Browse.001/2026.01.23/BROWSE.VNP47MOD.A2026022.1624.002.2026023021805.1.jpg)
+
+---
+
 `You are downloading data from NASA's Land Processes Distributed
 Active Archive Center` [LinK @emit-sds @nasa-pjs @stateofcalifornia @cityoflosangeles](https://e4ftl01.cr.usgs.gov/WORKING/BRWS/Browse.001/)
 

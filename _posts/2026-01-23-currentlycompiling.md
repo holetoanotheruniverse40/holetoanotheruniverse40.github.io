@@ -8,7 +8,35 @@ author: "RashardKelly @nasa-jpl"
 ---
 
 
-@blackgirlscode t.i. on with MrsKing [link](https://youtu.be/mxAFTk3BBys?si=_wUhbyw0dMaw6nK5) @nasa-jpl
+@blackgirlscode t.i. on with MrsKing [link](https://youtu.be/mxAFTk3BBys?si=_wUhbyw0dMaw6nK5) @nasa-jpl @blackgirlscode 
+Basic Writing Skills w/ Cicely Tyson (1988) [WATCH](https://youtu.be/UnX47Odz3z4) 
+
+## Vendetta_coveredmyart_karenbass_latrice_DougNewman_someone_vanalized_trice_streetart_VirtiSerV
+
+<video controls preload="none" itemprop="location" itemscope itemtype="https://schema.org/Place"  >
+  
+  <source src="https://ia600307.us.archive.org/10/items/commitmentmaintenance/0000000000_Oc_Vendetta_coveredmyart_karenbass_latrice_DougNewman_someone_vanalized_trice_streetart_VirtiSerVVID_20260109_193826_194.mp4" type="video/mp4" />
+  <source src="https://ia800307.us.archive.org/10/items/commitmentmaintenance/0000000000_Oc_Vendetta_coveredmyart_karenbass_latrice_DougNewman_someone_vanalized_trice_streetart_VirtiSerVVID_20260109_193826_194.mp4" type="video/mp4" />
+
+
+  Download the
+  <a href="https://ia600307.us.archive.org/10/items/commitmentmaintenance/EIC_PalisadesEaton_Wildfire_7680x2160.mp4">MP4</a>
+  or
+  <a href="https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005597/EIC_PalisadesEaton_Wildfire_7680x2160.mp4">MP4</a>
+  video.
+</video>
+<img  alt="image" src="https://github.com/user-attachments/assets/92b7936d-527e-4e58-a40a-abb538d484ca" />
+
+<img alt="image" src="https://github.com/user-attachments/assets/9b25503d-1a2a-44bf-b6bf-2ea661532a87" />
+<img alt="image" src="https://github.com/user-attachments/assets/321fdef6-3d99-45c4-8598-1ff7e903bf1b" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/c8c08cd8-8963-47cd-96e5-ed1a1930048a" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/254bc3f1-5526-4d86-a745-05dc51c38374" />
+@karenBass [StyleWars](https://archive.org/download/style-wars_1983/STYLE_WARS_%281983%29/Style%20Wars%20-%20legendary%20graffiti%20documentary%20%281983%29.mp4) @blackgirlscode @Cityoflosangeles missing kids 
+[itwaslive](https://vimeo.com/396000267?fl=pl&fe=sh) @abc7 @datadesk @cbs-news-data ask [@blackgirlscode](https://vimeo.com/396000267?fl=pl&fe=sh) @la-county-isd @lacounty-isab @webb
+
+<img  alt="image" src="https://github.com/user-attachments/assets/b42e9b76-f470-4cdd-9fd9-ffc75874b8ab" />
 
 
 

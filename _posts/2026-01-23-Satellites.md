@@ -5,8 +5,47 @@ published: true
 title: Satellites
 image: 0102619orig.webp
 author: "RashardKelly @nasa-jpl"
+permalink: /Satellites
 ---
 
+[NuSTAR](https://www.tumblr.com/rashardmro/806558877712875520/monitoring-water-quality-in-lakes-and-coastal?source=share)
+
+[jpl](https://www.jpl.nasa.gov/missions/nuclear-spectroscopic-telescope-array-nustar/) / [Wiki](https://en.wikipedia.org/wiki/NuSTAR) / @CalTech @nasa-jpl [nustar.caltech.edu/](https://nustar.caltech.edu/) // [heasarc.gsfc.nasa.gov/docs/nustar/](https://heasarc.gsfc.nasa.gov/docs/nustar/)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/5f1ae23b-585b-4bfd-8b34-17236fff604b" />
+
+## GPM 
+In 1997, NASA and the Japan Aerospace Exploration Agency (JAXA), launched the Tropical Rainfall Measuring Mission (TRMM) to learn more about the role of tropical rainfall in Earth’s water and energy cycles. Orbiting from 35° North to 35° South, the satellite carries the first space-based precipitation radar and a microwave imager designed to observe moderate to intense tropical rainfall. [Wiki](https://en.wikipedia.org/wiki/Global_Precipitation_Measurement)
+[AGU](https://agupubs.onlinelibrary.wiley.com/doi/full/10.1029/2023EF003534) [EO](https://science.nasa.gov/earth/earth-observatory/image-of-the-day/) 
+
+![@jaxa GLOBAL RAiNFALLWATCH](https://sharaku.eorc.jaxa.jp/GSMaP/img/header_title_E.png) 
+ [@jaxa GLOBAL RAiNFALLWATCH](https://sharaku.eorc.jaxa.jp/GSMaP/)
+ 
+<img  alt="image" src="https://github.com/user-attachments/assets/0fa018a7-026c-42b2-9910-c6556fa38953" />
+
+By NASA - <a rel="nofollow" class="external free" href="https://science.nasa.gov/toolkits/spacecraft-icons">https://science.nasa.gov/toolkits/spacecraft-icons</a> (<a rel="nofollow" class="external text" href="https://smd-prod.s3.amazonaws.com/science-green/s3fs-public/thumbnails/image/GPM.png">image link</a>), Public Domain, <a href="https://commons.wikimedia.org/w/index.php?curid=58302456">Link</a>
+
+### The weather guidelines for NASA’s Artemis II flight
+test identify conditions to safely roll out to the pad and launch the agency’s Space Launch System and Orion spacecraft.
+[Read](https://www.nasa.gov/artemis-ii-weather-criteria/) @stateofcalifornia @blackgirlscode [Watch - 
+Artemis II Arrives at the Launchpad](https://youtu.be/EZaKdgc0x5g?si=2C1U1-Xhk2npPbNP) @lmco `2023-10-03 -> 2026-01-20 nasa-gov.go-vip.net` [Read https://dnshistory.org/dns-records/www.nasa.gov](https://dnshistory.org/dns-records/www.nasa.gov)
+@TheSpaceDevs @nasa-pds @emit-sds . . . 
+[Artemis I Weather Criteria](https://www3.nasa.gov/sites/default/files/atoms/files/artemis_i_weather_criteria_fact_sheet_0.pdf)
+@cityoflosangeles @la-county-isd you guys should know about these things, then theres places we can team to keep los angeles safe Mrs Solis @bloomberg @foxnews
+`https://web.archive.org/web/20220430125134/https://www.nasa.gov/artemis-1` [Artemis1](https://web.archive.org/web/20220430125134/https://www.nasa.gov/artemis-1) The Link Points to `nasa.gov/images/` January 26 is the earliest snapshot revealing the artemis 1 mission log being vandalized @whitehouse i need mrs bass at somepoint to help me with my family, somone trying to kill me! This is from around the fires 
+```
+
+Loading...
+
+https://www.nasa.gov/artemis-1/ |
+13:38:09 January 26, 2025
+
+Got an HTTP 301 response at crawl time
+
+Redirecting to...
+
+https://www.nasa.gov/images/
+```
 
 <img  alt="image" src="https://github.com/user-attachments/assets/f4e4b70e-019e-494d-87f0-308285722d1c" />
 

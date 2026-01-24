@@ -17,6 +17,23 @@ date:   2026-01-12 8:51:06
 [comment]: <> (Emergency Files )
 
 ## Los Angeles County[!](https://youtu.be/xjEoo14xHRs)
+@cityoflosangeles @nasa-jpl @CityOfLosangeles @LA-County-iSd 
+S1C_IW_GRDH_1SDV_20260122T135139_20260122T135204_006017_00C107_727D @asfadmin [VERTEX](https://search.asf.alaska.edu/#/)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/ad198a34-6a8d-4bc7-86e3-23e7d20c3dd4" />
+
+
+@la-county-isd [My @Vsco](https://vsco.co/rashardsartu/gallery) // for work @nasa [My @Vsco](https://vsco.co/earthdatarashard/gallery) @whitehouse @caltech @newshour @npr
+
+<div class="tupperware">
+ 
+<img   alt="image" src="https://github.com/user-attachments/assets/3e677dfe-4c29-4fae-b3d6-d128e307a496" />
+<img   alt="image" src="https://github.com/user-attachments/assets/0c0cb5b3-895a-4a72-be25-79df32e69cea" />
+
+</div>
+
+
+
 iranian protest @la-county-isd @stateofcalifornia @cityoflosangeles [[1](https://ia600307.us.archive.org/10/items/commitmentmaintenance/000000000_HTAU_DROUGHT_IRAN_DTLA_VID_20260118_131924_785.mp4)] [[2](https://ia600307.us.archive.org/10/items/commitmentmaintenance/000000000_HTAU_DROUGHT_IRAN_DTLA_VID_20260118_135644_497.mp4)] [[3](https://ia600307.us.archive.org/10/items/commitmentmaintenance/000000000_HTAU_DROUGHT_IRAN_DTLA_VID_20260118_142145_173.mp4)] [[4](https://ia600307.us.archive.org/10/items/commitmentmaintenance/000000000_HTAU_DROUGHT_IRAN_DTLA_VID_20260118_142554_732.mp4)] [[FLAG 5](https://ia600307.us.archive.org/10/items/commitmentmaintenance/000000000_HTAU_DROUGHT_IRAN_DTLA_VID_20260118_142902_369.mp4)]
 [River At Chinatown/Highland PAssover @LACMTA](https://ia600307.us.archive.org/10/items/commitmentmaintenance/000000000_HTAU_DROUGHT_IRAN_DTLA_raj_vuchatu_VID_20260119_084738_027.mp4) @isro @nasa-jpl [California WaterDashBoard]( https://dashboard.waterdata.usgs.gov/app/nwd/en/?aoi=wsc-ca&view=%7B%22basemap%22%3A%22EsriImagery2%22%2C%22bounds%22%3A%22-123.22533692458545%2C36.88628508541727%2C-119.17013557016892%2C42.84790777777083%22%2C%22insetMap%22%3Afalse%2C%22panel%22%3A%7B%22id%22%3A%22ViewerLayers%22%2C%22open%22%3Afalse%2C%22checkbox%22%3A%220%2C10%2C17%2C20%2C21%2C22%2C23%22%2C%22range%22%3A%220%3A1.0%2C1%3A1.0%2C2%3A1.0%2C3%3A1.0%2C4%3A1.0%2C5%3A1.0%2C6%3A1.0%2C7%3A1.0%2C8%3A0.8%2C9%3A0.3%2C10%3A0.5%2C11%3A0.5%2C12%3A0.5%2C13%3A0.5%2C14%3A0.5%2C15%3A0.5%2C16%3A0.5%2C17%3A1.0%2C18%3A1.0%2C19%3A1.0%2C20%3A1.0%22%2C%22select%22%3A%220%3A0%2C1%3A0%2C2%3A0%2C3%3A0%2C4%3A0%2C5%3A0%2C6%3A0%2C7%3A0%2C8%3A0%2C9%3A0%2C10%3A0%2C11%3A0%2C12%3A0%2C13%3A0%2C14%3A0%2C15%3A0%2C16%3A0%2C17%3A0%2C18%3A0%2C19%3A0%22%7D%7D) 
 
@@ -939,6 +956,9 @@ encouraging meaningless expenditures that reduce the capability for political an
 [https://rashard-ecostress-jpl-iss.github.io/](https://rashard-ecostress-jpl-iss.github.io/)
 
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A41325407&color=%23562615&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/brandy2012" title="Brandy2012" target="_blank" style="color: #cccccc; text-decoration: none;">Brandy2012</a> · <a href="https://soundcloud.com/brandy2012/show-dat-bra-timbaland-feat" title="Show-Dat-Bra - Timbaland feat. Bran&#x27;Nu &amp; Attitude" target="_blank" style="color: #cccccc; text-decoration: none;">Show-Dat-Bra - Timbaland feat. Bran&#x27;Nu &amp; Attitude</a></div>
+
+
+
 
 
 

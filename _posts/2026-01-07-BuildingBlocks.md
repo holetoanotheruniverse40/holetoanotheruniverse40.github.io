@@ -227,7 +227,7 @@ ITs not serving results from common sense check box clicking... i spoke about it
 
 This is how its supposed to look 
 
-<img width="1919" height="1079" alt="image" src="https://github.com/user-attachments/assets/73bec032-095e-42d1-bea3-5c7506eec620" />
+<img   alt="image" src="https://github.com/user-attachments/assets/73bec032-095e-42d1-bea3-5c7506eec620" />
 <img alt="image" src="https://github.com/user-attachments/assets/1a176511-f548-4e02-8cfe-93cabae60986" />
 <img src="https://github.com/user-attachments/assets/caa6c166-84c8-40ad-a18e-11b4e2211a8d" alt="image"/>
 <img  alt="image" src="https://github.com/user-attachments/assets/59916f00-7508-4ce5-a18a-f6fd1c25082d" />
