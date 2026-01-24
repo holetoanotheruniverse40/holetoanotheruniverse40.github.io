@@ -13,12 +13,28 @@ permalink: Sun
 # Heliophysics
 The Science Mission Directorate Heliophysics Division studies the nature of the Sun, and how it influences the very nature of space 
 
+## CODEX
+_Coronal Diagnostic Experiment_
+CODEX is a solar coronagraph installed on the International Space Station to gather important information about the [solar wind](https://www.jpl.nasa.gov/infographics/the-solar-wind-across-our-solar-system/) and how it forms. 
+<img alt="image" src="https://github.com/user-attachments/assets/94ea869e-6a66-4cc7-8c50-e51cec63d251" />
+![https://science.nasa.gov/wp-content/uploads/2024/06/coronasolarwind-en.gif](https://science.nasa.gov/wp-content/uploads/2024/06/coronasolarwind-en.gif) 
+[Link](https://science.nasa.gov/mission/codex/)
+
+
+## Strong Flare Erupts From Sun
+[watch](https://assets.science.nasa.gov/content/dam/science/hpd/solar-physics/12-18-2026_X1pt9Flare_131-171-304_1080_v2.mov)
+The Sun emitted a strong solar flare, peaking at 1:09 p.m. EST on Jan. 18, 2026. NASA’s Solar Dynamics Observatory, which watches the Sun constantly, captured video of the event
+[Link](https://science.nasa.gov/blogs/solar-cycle-25/2026/01/20/strong-flare-erupts-from-sun-8/) [VideoEmbedded @nasa](https://science.nasa.gov/blogs/solar-cycle-25/2026/01/20/strong-flare-erupts-from-sun-8/) if you have trouble with .mov files @apple @la-county-isd @cityoflosangeles @blackgirlscode 
+
 ## "Our Mr. Sun" :: _VINTAGE_
 
 [PART1](https://youtu.be/kYPQb7SnaBE?si=SMdXhL86JCuYFKo3) ::
  [PART2](https://youtu.be/A9XtfNRVBlI?si=som_hQcU32MzGm6F)
 
 This film "Our Mr. Sun" is one of the episodes of the Bell Science Series. This was a special series of nine films created between 1956 and 1964 by Bell Telephone / AT&T corporation. These were crafted with entertaining animation and storylines that presented complex science theory in a clever way. Director Frank Capra wrote the screenplay for “Our Mr. Sun” with help from a scientific advisory board. (Donald Menzel's book titled “Our Sun” published in 1949, was also used.) This feature takes a look at our Sun, the physics of how it works, and its effect on the Earth.  The film stars Frank Baxter as a factitious science researcher and Eddie Albert as a science writer. Part 2 begins with a discussion on thermonuclear reactions. It also digs shows early work in solar energy and hints that it could be a replacement for fossil fuels
+
+
+<img   alt="image" src="https://github.com/user-attachments/assets/5eff5051-18cb-461f-85d8-17fa92a48cdb" />
 
 ![sdolab](1https://sdo.gsfc.nasa.gov/assets/img/latest/latest_1024_0193.jpg)
 
