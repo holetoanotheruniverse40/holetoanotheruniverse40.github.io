@@ -11,6 +11,9 @@ image: Kelp_southAmerica_NGS.jpg
 - Jumpto `weather` [space-weather](#space-weather) 
 ## Artemis 2
 
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/soundcloud%253Aplaylists%253A336070390&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/nasa" title="NASA" target="_blank" style="color: #cccccc; text-decoration: none;">NASA</a> · <a href="https://soundcloud.com/nasa/sets/houston-we-have-a-podcast" title="Houston We Have a Podcast" target="_blank" style="color: #cccccc; text-decoration: none;">Houston We Have a Podcast</a></div>
+
+
 ## 3 Americans and a Human - The Flame Trench
 [WATCH](https://www.youtube.com/watch?v=wAcfrvKDqR0) @nasa-pds @blackgirlscode `This is Gavin Newsom` [Watch](https://www.youtube.com/@ThisisGavinNewsom) @StateofCalifornia @NASASpaceFlight
 

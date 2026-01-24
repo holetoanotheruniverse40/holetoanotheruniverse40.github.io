@@ -13,6 +13,15 @@ permalink: Sun
 # Heliophysics
 The Science Mission Directorate Heliophysics Division studies the nature of the Sun, and how it influences the very nature of space 
 
+## "Our Mr. Sun" :: _VINTAGE_
+
+[PART1](https://youtu.be/kYPQb7SnaBE?si=SMdXhL86JCuYFKo3) ::
+ [PART2](https://youtu.be/A9XtfNRVBlI?si=som_hQcU32MzGm6F)
+
+This film "Our Mr. Sun" is one of the episodes of the Bell Science Series. This was a special series of nine films created between 1956 and 1964 by Bell Telephone / AT&T corporation. These were crafted with entertaining animation and storylines that presented complex science theory in a clever way. Director Frank Capra wrote the screenplay for “Our Mr. Sun” with help from a scientific advisory board. (Donald Menzel's book titled “Our Sun” published in 1949, was also used.) This feature takes a look at our Sun, the physics of how it works, and its effect on the Earth.  The film stars Frank Baxter as a factitious science researcher and Eddie Albert as a science writer. Part 2 begins with a discussion on thermonuclear reactions. It also digs shows early work in solar energy and hints that it could be a replacement for fossil fuels
+
+![sdolab](1https://sdo.gsfc.nasa.gov/assets/img/latest/latest_1024_0193.jpg)
+
 ### Nuclear Spectroscopic Telescope Array
 
 ## NuSTAR
