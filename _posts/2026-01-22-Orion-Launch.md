@@ -8,8 +8,15 @@ image: Kelp_southAmerica_NGS.jpg
 ---
 @NASA's Artemis II Live Views from Kennedy Space Cente
 [Live Views](https://youtu.be/nrVnsO_rdew) ::: [Radio](https://session.wefunkradio.com/radio/play) 
-- Jumpto `weather` [space-weather](#space-weather) 
+- Jump to  [space-`weather`](#space-weather)
+-  Jump to  [`moon-Data`](#moon-data) 
 ## Artemis 2
+# Splashdown 101: @USNavy @La-County-isd
+Joint Team to Recover Crew, Orion After Moon Missions
+[splashdown](https://www.nasa.gov/missions/artemis/artemis-2/splashdown-101-joint-team-to-recover-crew-orion-after-moon-missions/)
+![https://www.nasa.gov/wp-content/uploads/2024/02/ksc-20240225-ph-kaa01-0071orig.jpg?resize=600,400](https://www.nasa.gov/wp-content/uploads/2024/02/ksc-20240225-ph-kaa01-0071orig.jpg?resize=600,400)
+@blackgirlscode t.i. on with MrsKing [link](https://youtu.be/mxAFTk3BBys?si=_wUhbyw0dMaw6nK5) @nasa-jpl @blackgirlscode 
+Basic Writing Skills w/ Cicely Tyson (1988) [WATCH](https://youtu.be/UnX47Odz3z4)
 
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/soundcloud%253Aplaylists%253A336070390&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/nasa" title="NASA" target="_blank" style="color: #cccccc; text-decoration: none;">NASA</a> · <a href="https://soundcloud.com/nasa/sets/houston-we-have-a-podcast" title="Houston We Have a Podcast" target="_blank" style="color: #cccccc; text-decoration: none;">Houston We Have a Podcast</a></div>
 
@@ -285,6 +292,135 @@ S1C_IW_GRDH_1SDV_20260122T135139_20260122T135204_006017_00C107_727D
 <img   alt="image" src="https://github.com/user-attachments/assets/bc55494b-9f30-4814-898e-54e3d33be7df" />
 
 <img   alt="image" src="https://github.com/user-attachments/assets/8b4eb8dc-59b1-47d7-9bec-37c496f593a4" />
+
+
+#  moon-data
+
+
+# Danuri ([다누리](https://www.kari.re.kr/danuri/html/index.html)) 
+## _**Korea Pathfinder Lunar Orbiter**_
+https://www.kari.re.kr/kor
+
+[Korea Pathfinder Lunar Orbiter (KPLO) Operation: From Design to Initial Results](https://www.janss.kr/archive/view_article?pid=jass-41-1-43) Korea Pathfinder Lunar Orbiter (KPLO) is South Korea’s first space exploration mission, developed by the Korea Aerospace Research Institute. It aims to develop technologies for lunar exploration, explore lunar science, and test new technologies. @BlueOrigin @nasa-jpl ... @@usgs @nasa-develop @nasa-giss @rafamoreira im trying to get all the moon data over to the artemis cReW @blackgirlscode [KPLO](https://www.kari.re.kr/danuri/html/index.html) is [transmitting](https://eyes.nasa.gov/apps/dsn-now/dsn.html) its a lunar mission 한국형 달 궤도선(韓國型 - 軌道船, 영어: Korea Pathfinder Lunar Orbiter, KPLO) 혹은 다누리(Danuri)는 2022년 8월 5일에 발사된 대한민국 최초의 달 탐사선이다. 미국의 케이프커내버럴 공군기지에서 스페이스X의 팰컨9 블록5에 실려 발사되었다. 본래 시험용으로 제작된 이 탐사선은 달의 물과 얼음을 탐지하는 데 쓰일 NASA의 특수 카메라를 비롯해 고해상도 카메라, 자원 탐사 장비, 적외선과 암석 측정 장치 등 6개의 탑재체가 실릴 예정이다.[5] 발사된 뒤 1개월간의 비행을 거쳐서 달 궤도에 진입하여 100km의 고도에서 1년간 임무를 수행할 예정이다.[6] '다누리'는 "달"과 "누리다"를 합성한 말로서, 2022년 시행된 달탐사선 명칭 공모전을 통해 KPLO의 명칭을 '다누리'로 확정했다.[7] [Wiki](https://ko.wikipedia.org/wiki/%EB%8B%A4%EB%88%84%EB%A6%AC_(%EC%9A%B0%EC%A3%BC%EC%84%A0)) : [app](https://play.google.com/store/apps/details?id=kr.liveinkorea.danuri&hl=ko&pli=1) /KPLO /KPLO /PublicRelease /kernels /spice_kernels [LiNK](https://www.kari.re.kr/kpds/published/KPLO/KPLO/PublicRelease/kernels/spice_kernels) @nasa-pds 
+
+## _Seeing in the Shadows_
+### What is ShadowCam?
+**ShadowCam** is a NASA-funded instrument hosted onboard the Korea Aerospace Research Institute (KARI) Korea Pathfinder Lunar Orbiter (KPLO) satellite. [ReadMore](https://shadowcam.im-ldi.com/about) 
+
+[Aristarchus Crater Under Earthshine](https://shadowcam.im-ldi.com/images/1297)
+[`shadowcam.im-ldi.com/ckeditor_assets/pictures/1278/content_M017435200S.map.str01.4mpp.crop1100.png`](https://shadowcam.im-ldi.com/ckeditor_assets/pictures/1278/content_M017435200S.map.str01.4mpp.crop1100.png) @la-county-isd ms bass ms mitchell if anyone is waiting on me to report fire anomolies i can get around to it @stateofcalifornia @cityoflosangeles i have to beef up my lunar coverage for my space weather. Orion/Artemis should be [launching in 2 weeks](https://www.youtube.com/live/hKThVn1OFJw?si=3q67hiGkeU7sHMDT) by  Feb 6 so i am a bit consumed with catching up with baqcklogged moon research and lauch prep i forgot about during [the first Artemis Mission](https://www.nasa.gov/mission/artemis-i/) @usgs @nasa-jpl @guardian @blackgirlscode [@guardian](https://github.com/guardian) @datadesk
+
+<img alt="image" src="https://github.com/user-attachments/assets/7e34a2aa-361d-46a4-85d6-c7f4ca6d5aa0" />
+
+
+![Arizona Lunar](https://lpl.arizona.edu/themes/custom/lpl_barrio/images/logo.png) 
+
+<img  alt="image" src="https://github.com/user-attachments/assets/76fb560a-e513-459b-aec0-b77160b651ab" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/699cd90b-c909-41c4-bdce-171ecf47dd7c" />
+
+
+# What is LROC?
+The Lunar Reconnaissance Orbiter Camera, or LROC, is a system of three cameras mounted on the Lunar Reconnaissance Orbiter (LRO) that capture high resolution black and white images and moderate resolution multi-spectral images of the lunar surface... [READMORE](https://www.lroc.asu.edu/about)
+![LROC](https://www.lroc.asu.edu/ckeditor_assets/pictures/1343/content_fip_point_persp.png)
+
+![ejecta](https://www.lroc.asu.edu/ckeditor_assets/pictures/1223/content_M1386451451_LRmos.warp.str01.1100p_FI.png)
+
+[Capri Sun Heads for the Moon: Takes a Lunar Leap with Debut of First-Ever Moon Punch](https://news.kraftheinzcompany.com/press-releases-details/2025/Capri-Sun-Heads-for-the-Moon-Takes-a-Lunar-Leap-with-Debut-of-First-Ever-Moon-Punch/default.aspx) CHICAGO--(BUSINESS WIRE)-- Today, Capri Sun enters a new phase with the launch of Moon Punch – the brand’s first glow-in-the-dark pouch ahead of the Total Lunar Eclipse. For the first time, Capri Sun is turning the moon itself into a scannable code through Snapchat, inviting fans to take part of the lunar phenomenon for a chance to unlock an exclusive first taste of Moon Punch. From March 13 to March 14, fans can open their cameras through Snapchat, snap the moon and follow the lunar link for a chance to receive a free carton of Moon Punch and a flashlight to help light up the night sky. 
+
+
+### announcements @nasa-pds @la-county-isd @nasa-jpl @emit-sds @NASAspaceflight
+December 15, 2025. LRO Release 64 includes new LEND, LOLA, and Mini-RF data. Release of Diviner data is delayed.
+[link](https://pds-geosciences.wustl.edu/missions/lro/) [LROC -  65A PDS Data Release](https://lroc.im-ldi.com/images/1469)
+Blue Origin Launched NS-38 mission #blueorigin[LinK](https://youtu.be/YDeqfIc4McI)
+@NASA's [Artemis II Moon Mission](https://www.nasa.gov/artemis-ii-weather-criteria/) LIVE form Launch pad and live feed form Space Station [watch](https://www.youtube.com/watch?v=hKThVn1OFJw) ... @ibm [https://video.ibm.com/channel/live-iss-stream](https://video.ibm.com/channel/live-iss-stream) = `OFF-AIR` @blackgirlscode hi there gals
+@nasa-openscapes @emit-sds ISS High Definition Live Streaming Video of the Earth (HDEV) [WATCH](https://eol.jsc.nasa.gov/esrs/hdev/)
+The mission of Astromaterials Research and Exploration Science Division, or ARES, is to combine scientific and engineering expertise in order to advance human space exploration, to integrate terrestrial and planetary research, and to promote successful space missions by mitigating risk [readmore](https://ares.jsc.nasa.gov/)
+
+### Planet Patrol is a monitoring system for the Planetary Data System
+[link](https://nasa-pds.github.io/PlanetPatrol/) : The status of various Planetary Data System web sites, APIs, and other network endpoints [nasa-pds.github.io/PlanetPatrol](https://nasa-pds.github.io/PlanetPatrol)
+
+[https://planetarydata.org/](https://planetarydata.org/) // `LROC` [The Lunar Reconnaissance Orbiter Camera, or LROC](https://lroc.im-ldi.com/)
+New LRO Images Offer Sharper Views of Apollo 12, 14, and 17 Sites [Link](https://svs.gsfc.nasa.gov/10818/)  mounted on the Lunar Reconnaissance Orbiter (LRO) that capture high resolution black and white images and moderate resolution multi-spectral images of the lunar surface. [ReadMore](https://lroc.im-ldi.com/about) /// [3 Americans and a Human - The Flame Trench - WATCH](https://youtu.be/wAcfrvKDqR0) /// [https://lroc.im-ldi.com/about](https://lroc.im-ldi.com/about)
+<img  alt="image" src="https://github.com/user-attachments/assets/1653d202-8e41-4493-841d-11ae129d6f19" />
+
+
+# [Ranger](https://www.jpl.nasa.gov/missions/ranger-1/) 9 
+ NASA's Ranger 9 was the last in a series of spacecraft launched in the 1960s to explore the Moon. It was designed to take images as it descended to the lunar surface for impact.
+
+<video  controls >
+  <source src="https://d2pn8kiwq2w21t.cloudfront.net/media/videosrangerVideo-Ranger-9-impact-020423.webm" type="video/mp4" />
+  
+  Your browser does not support the video tag.
+</video>
+
+### [The_Ranger_Program](https://science.nasa.gov/mission/lunar-rangers-and-surveyors/) : [WikiTalkPage @nasa](https://en.wikipedia.org/wiki/Talk:Ranger_program) @nasa-jpl 
+
+![The_Ranger_Program](https://assets.science.nasa.gov/dynamicimage/assets/science/psd/solar/2023/09/a/as12-48-7134.jpg?w=6515&h=6515&fit=clip&crop=faces%2Cfocalpoint)
+ [svgDiagram](https://upload.wikimedia.org/wikipedia/commons/5/50/Ranger_6789.svg)
+
+
+[Clementine DataBundle @nasa-pds @blackgirlscode](https://pds-imaging.jpl.nasa.gov/volumes/clementine.html)
+[United States Naval Research Laboratory `wiKi`](
+https://en.wikipedia.org/wiki/United_States_Naval_Research_Laboratory) [@NASA CLEMENTiNE](https://science.nasa.gov/mission/clementine/)
+
+
+# Lunar Rotation and Flyby from Clementine Data (with route map)
+June 9, 1995
+Clementine was a joint project between the Strategic Defense Initiative Organization and NASA. The objective of the mission was to test sensors and spacecraft components under extended exposure to the space environment and to make scientific observations of the Moon and the near-Earth asteroid 1620 Geographos. Clementine was launched on 25 January 1994 at 16:34 UTC (12:34 PM EDT) from [Vandenberg AFB](https://www.facebook.com/SLD30/posts/pfbid02eXaVjcUQLUXdFv9oPVcJBhBd3SxJFih5TRbWPmxi7WK92oeWBXxEjGdNAWuzGGC1l) , [California](https://www.vandenberg.spaceforce.mil/?fbclid=IwY2xjawOfCWpleHRuA2FlbQIxMABicmlkETAyNmloMlRKQUQyd051bGZlc3J0YwZhcHBfaWQQMjIyMDM5MTc4ODIwMDg5MgABHlC3ZxuiC3h1RARw7yjxWvnrwW4Y2Yz1qHt5oigpJqHO5tduDm6HEXiaggRG_aem_VqMdNyRpsSy2nT7hGvLfcg) aboard a Titan II G rocket. After two Earth flybys, lunar insertion was achieved on February 21.
+
+
+[Moon](https://ia600307.us.archive.org/10/items/commitmentmaintenance/Clementine_sunrise_pdsimg-atlas-wget_2025-12-04T21_22_06_149_ezgif-5c792ef25a752ee0.mp4) #CORAL 
+@blackgirlscode 
+
+<video  controls poster="https://svs.gsfc.nasa.gov/vis/a000000/a000000/a000079/a000079_slate.jpg" >
+  <source src="https://ia600307.us.archive.org/10/items/commitmentmaintenance/Clementine_sunrise_pdsimg-atlas-wget_2025-12-04T21_22_06_149_ezgif-5c792ef25a752ee0.mp4" type="video/mp4" />
+  <source src="https://ia800307.us.archive.org/10/items/commitmentmaintenance/Clementine_sunrise_pdsimg-atlas-wget_2025-12-04T21_22_06_149_ezgif-5c792ef25a752ee0.mp4" type="video/mp4" />
+  
+  Your browser does not support the video tag.
+</video>
+
+
+<div class="tupperware">
+    
+{% for image in site.static_files %}
+    {% if image.path contains 'assets/images/gallery-moon' | sort: 'date' | reverse %} 
+        <a href="{{ site.baseurl }}{{ image.path }}" target="_blank">
+            <img src="{{ site.baseurl }}{{ image.path }}" alt="" class="img-thumbnail" />
+        </a>
+    {% endif %}
+{% endfor %}
+
+</div>
+
+![Clementine](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Clementine_lunar.jpg/960px-Clementine_lunar.jpg)
+
+By U.S. NavaBy [U.S. Naval Research Laboratory](https://www.nrl.navy.mil/) - <a rel="nofollow" class="external free" href="https://www.nrl.navy.mil/News-Media/Images/igphoto/2003032278/">https://www.nrl.navy.mil/News-Media/Images/igphoto/2003032278/</a>, Public Domain, <a href="https://commons.wikimedia.org/w/index.php?curid=2519098">Link</a>
+
+
+Reiner Gamma (γ) is a geographical feature of the Moon known as a lunar swirl. It is one of the most visible lunar swirls from Earth, visible from most ... -[wiki](https://en.wikipedia.org/wiki/Reiner_Gamma)
+
+![Gamma](https://upload.wikimedia.org/wikipedia/commons/2/2a/Reiner_Gamma.jpg)
+
+# Lunar Transit 2021
+
+On February 11th, 2021, the moon again passed between DSCOVR and the Earth. EPIC snapped these images over a period of about 3 hours. In this set, the far side of the moon, which is never seen from Earth, passes by. In the backdrop, Earth rotates over Australia and the Pacific, gradually revealing Asia. [Read](https://epic.gsfc.nasa.gov/galleries/2021/lunar_transit)
+
+<video  controls >
+  <source src="https://epic.gsfc.nasa.gov/epic-galleries/2021/lunar_transit/20210211lunartransit.mp4" type="video/mp4" />
+  
+  Your browser does not support the video tag.
+</video>
+
+<img  alt="image" src="https://github.com/user-attachments/assets/0fb99636-a675-456e-8917-084c964968a6" />
+
+# Lunar Occultation 2020
+
+<video  controls >
+  <source src="https://epic.gsfc.nasa.gov/epic-galleries/2020/lunar_occultation/20201002lunartransitrear.mp4" type="video/mp4" />
+  
+  Your browser does not support the video tag.
+</video>
 
 ## SpaceWeather 4 [Splashdown](https://www.youtube.com/live/EqT3nDbwETc?si=3lNL5Pg-p3JSSE1G)
 

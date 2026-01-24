@@ -7,7 +7,21 @@ image: tumblr_9996aa2d413f6668f7f48ccdb4f9fb8a_8780e031_2048.jpg
 author: "RashardKelly @nasa-jpl"
 ---
 
+# Splashdown 101:
+Joint Team to Recover Crew, Orion After Moon Missions
+[splashdown](https://www.nasa.gov/missions/artemis/artemis-2/splashdown-101-joint-team-to-recover-crew-orion-after-moon-missions/)
+![https://www.nasa.gov/wp-content/uploads/2024/02/ksc-20240225-ph-kaa01-0071orig.jpg?resize=600,400](https://www.nasa.gov/wp-content/uploads/2024/02/ksc-20240225-ph-kaa01-0071orig.jpg?resize=600,400)
+@blackgirlscode t.i. on with MrsKing [link](https://youtu.be/mxAFTk3BBys?si=_wUhbyw0dMaw6nK5) @nasa-jpl @blackgirlscode 
+Basic Writing Skills w/ Cicely Tyson (1988) [WATCH](https://youtu.be/UnX47Odz3z4)
 
+https://www.kari.re.kr/kor
+https://www.nasa.gov/mission/artemis-i/
+https://pds.nasa.gov/ds-view/pds/viewContext.jsp?identifier=urn:kari:kpds:context:investigation:mission.kplo
+https://www.youtube.com/watch?v=hKThVn1OFJw
+https://pds.nasa.gov/ds-view/pds/viewCollection.jsp?identifier=urn:kari:kpds:kplo_spice:document
+https://shadowcam.im-ldi.com/ckeditor_assets/pictures/1278/content_M017435200S.map.str01.4mpp.crop1100.png
+https://shadowcam.im-ldi.com/about
+https://www.sandiego.gov/mayor/contact
 @blackgirlscode t.i. on with MrsKing [link](https://youtu.be/mxAFTk3BBys?si=_wUhbyw0dMaw6nK5) @nasa-jpl @blackgirlscode 
 Basic Writing Skills w/ Cicely Tyson (1988) [WATCH](https://youtu.be/UnX47Odz3z4) 
 
