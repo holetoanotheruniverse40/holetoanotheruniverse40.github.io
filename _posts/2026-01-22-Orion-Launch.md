@@ -2,14 +2,15 @@
 layout: default
 title:  "Orion/Artemis @nasa @r-spaceX"
 published: true
-date:   2026-01-22 08:19:06 -0800
+date:   2026-01-24 08:19:06 -0800
 tags: nsn ecostress crew11 iss
 image: Kelp_southAmerica_NGS.jpg
 ---
 @NASA's Artemis II Live Views from Kennedy Space Cente
 [Live Views](https://youtu.be/nrVnsO_rdew) ::: [Radio](https://session.wefunkradio.com/radio/play) 
 - Jump to  [space-`weather`](#space-weather)
--  Jump to  [`moon-Data`](#moon-data) 
+-  Jump to  [`moon-Data`](#moon-data)
+-  
 ## Artemis 2
 # Splashdown 101: @USNavy @La-County-isd
 Joint Team to Recover Crew, Orion After Moon Missions
@@ -299,7 +300,7 @@ S1C_IW_GRDH_1SDV_20260122T135139_20260122T135204_006017_00C107_727D
 
 # Danuri ([다누리](https://www.kari.re.kr/danuri/html/index.html)) 
 ## _**Korea Pathfinder Lunar Orbiter**_
-https://www.kari.re.kr/kor
+https://www.kari.re.kr/kor [FuLLTEXT](https://github.com/ThakaRashard/rashardmro/blob/master/_posts/2026-01-23-Satellites.md)
 
 [Korea Pathfinder Lunar Orbiter (KPLO) Operation: From Design to Initial Results](https://www.janss.kr/archive/view_article?pid=jass-41-1-43) Korea Pathfinder Lunar Orbiter (KPLO) is South Korea’s first space exploration mission, developed by the Korea Aerospace Research Institute. It aims to develop technologies for lunar exploration, explore lunar science, and test new technologies. @BlueOrigin @nasa-jpl ... @@usgs @nasa-develop @nasa-giss @rafamoreira im trying to get all the moon data over to the artemis cReW @blackgirlscode [KPLO](https://www.kari.re.kr/danuri/html/index.html) is [transmitting](https://eyes.nasa.gov/apps/dsn-now/dsn.html) its a lunar mission 한국형 달 궤도선(韓國型 - 軌道船, 영어: Korea Pathfinder Lunar Orbiter, KPLO) 혹은 다누리(Danuri)는 2022년 8월 5일에 발사된 대한민국 최초의 달 탐사선이다. 미국의 케이프커내버럴 공군기지에서 스페이스X의 팰컨9 블록5에 실려 발사되었다. 본래 시험용으로 제작된 이 탐사선은 달의 물과 얼음을 탐지하는 데 쓰일 NASA의 특수 카메라를 비롯해 고해상도 카메라, 자원 탐사 장비, 적외선과 암석 측정 장치 등 6개의 탑재체가 실릴 예정이다.[5] 발사된 뒤 1개월간의 비행을 거쳐서 달 궤도에 진입하여 100km의 고도에서 1년간 임무를 수행할 예정이다.[6] '다누리'는 "달"과 "누리다"를 합성한 말로서, 2022년 시행된 달탐사선 명칭 공모전을 통해 KPLO의 명칭을 '다누리'로 확정했다.[7] [Wiki](https://ko.wikipedia.org/wiki/%EB%8B%A4%EB%88%84%EB%A6%AC_(%EC%9A%B0%EC%A3%BC%EC%84%A0)) : [app](https://play.google.com/store/apps/details?id=kr.liveinkorea.danuri&hl=ko&pli=1) /KPLO /KPLO /PublicRelease /kernels /spice_kernels [LiNK](https://www.kari.re.kr/kpds/published/KPLO/KPLO/PublicRelease/kernels/spice_kernels) @nasa-pds 
 
