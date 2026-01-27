@@ -15,6 +15,98 @@ Basic Writing Skills w/ Cicely Tyson (1988) [WATCH](https://youtu.be/UnX47Odz3z4
   <li>{{ post.title }}</li>
 {% endfor %}
 
+@whitehouse [MrTrump](https://www.whitehouse.gov/administration/donald-j-trump/). By The Way, I have two videos I want you to see about Quality OF life in LosAngeles and the [priority](https://youtu.be/5QJVsuizNo4?si=SxVZrypFGqynXLuK) of Art, Graffiti and Going HAm
+
+- [HTAU_MRTRUMP1OF2SOL4711-4765](https://archive.org/download/commitmentmaintenance/000000000000_laRiverCanaL_HTAU_MRTRUMP1OF2SOL4711-4765_Jon_Ossoff_karenbass_NAGiN_COX_rashardsupdate_VirtiservLatriceVID_20260126_100756_144VID_20260125_002200_772.mp4) 	26-Jan-2026 23:36	323.1M
+- [HTAU_MRTRUMP2OF2SOL4711](https://archive.org/download/commitmentmaintenance/000000000000_laRiverCanaL_HTAU_MRTRUMP2OF2SOL4711-4765_Jon_Ossoff_karenbass_NAGiN_COX_rashardsupdate_VirtiservLatriceVID_20260126_100756_144VID_20260125_002817_522.mp4)26-Jan-2026 23:37	140.8M
+  @nasa @doug-newman-nasa @mfisher87 @NASA-GISS @blackgirlscode @la-county-isd @CityOfLosAngeles @GEOS-ESM @datadesk @washingtonpost @newshour @cbs-news-data @nbcnews
+Me and Coral vs CRAE [watch on @vimeo](https://vimeo.com/396000267?fl=pl&fe=sh)
+@Whitehouse @fbicyber
+This writer going by the name Crae, I painted wiht him Mrs Holly Mitchell... I painted with a few of my victimizers to get to know them. He was a PB_THUG and doubled at Familiy services and asked coral how often do she touch herself under the name [Dr. R_L](https://dfcs.georgia.gov/) ::: [WATCH](https://vimeo.com/396000267)
+<img   alt="image" src="https://github.com/user-attachments/assets/5f086c0c-3c2b-4026-ad25-80935fdffb62" />
+
+
+<img alt="image" src="https://github.com/user-attachments/assets/cf1d4772-1c85-4be7-a66e-46526d6c5ec4" />
+
+<img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5fc456bce1ebb64f08283bf2/vsco5fc456bd41267.jpg">
+
+## DEAR_HAYAT
+
+ i did this tag with TAR_BLACK... Them nozzles is butta
+
+<img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5fc455b1e1ebb64f08283be5/vsco5fc455b279aee.jpg" >
+
+
+
+<img src="https://www.graffiti.org/atl/noah.jpg">
+<img src="https://www.graffiti.org/atl/civicwall.jpg">
+<img src="http://www.patrikwallner.com/wp-content/uploads/2015/10/National-Geographics-Madagascar-Pages-LOWQ-2000P.jpg">
+<img src="https://www.graffiti.org/mesa/such-pink-tackz.jpg" alt="Such, Lady Pink, Tackz AM7">
+<img src="https://im.vsco.co/aws-us-west-2/12f8b0/56497/5fc45a98e1ebb64f08283c25/vsco5fc45a9961d50.jpg" alt="##SKATE_THE_WORLD_BOOK::NATIONAL_GEOGRAPHIC" >
+
+<img src="https://www.graff-city.com/images/montana-tar-black-spray-paint-600ml-p63-6362_image.jpg">
+
+<img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5ca50aa775895e578ff474d1/vsco5ca50aa9176aa.jpg">
+
+<img src="https://www.graff-city.com/images/molotow-dripstick-coversall-861ds-p322-7828_medium.jpg" >
+
+
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/5YMYrB0dqoU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<img src="https://www.graff-city.com/images/molotow-coversall-color-spray-paint-p41-4380_image.jpg">
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/488311404&color=%23bf3d2d&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/bahamadia" title="Bahamadia" target="_blank" style="color: #cccccc; text-decoration: none;">Bahamadia</a> · <a href="https://soundcloud.com/bahamadia/pep-talk" title="Pep Talk" target="_blank" style="color: #cccccc; text-decoration: none;">Pep Talk</a></div>
+[Teens have abandoned Facebook, Pew study says ::: by, Amanda Silberling](https://techcrunch.com/2022/08/11/teens-abandoned-facebook-pew-study/)
+
+<img src="https://pbs.twimg.com/media/DhVpEPHWsAEgRTR?format=jpg&name=4096x4096">
+<iframe width="100%" height="480" src="https://www.youtube.com/embed/6VCdJyOAQYM" title="Arrested Development - Tennessee" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/511197930&color=%237d4c1d&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/littledragon" title="Little Dragon" target="_blank" style="color: #cccccc; text-decoration: none;">Little Dragon</a> · <a href="https://soundcloud.com/littledragon/lover-chanting" title="Lover Chanting" target="_blank" style="color: #cccccc; text-decoration: none;">Lover Chanting</a></div>
+<iframe width="100%" height="480" src="https://www.youtube.com/embed/yiSTcdi82S0" title="Little Dragon - Lover Chanting (Official Video)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<img src="https://www.graff-city.com/images/molotow-premium-neon-bundle-6-can-pack-p4681-25436_image.jpg">
+<img src="https://www.graff-city.com/images/molotow-premium-spray-paint-p92-17214_medium.jpg">
+
+<img src="https://cdn.shopify.com/s/files/1/0815/6851/products/94Box_1000x_1000x_1000x_d2e323d4-558a-4803-b6c4-e01c8e66902a_600x.jpg?v=1588370312">
+
+<img src="https://cdn.shopify.com/s/files/1/0815/6851/products/a5_600x.jpg">
+
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/MYxAiK6VnXw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+[The Best High-Performance Subwoofer By Brent Butterworth](https://www.nytimes.com/wirecutter/reviews/best-subwoofer-for-home/)
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/308016226&color=%23141314&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/itsellamai" title="Ella Mai" target="_blank" style="color: #cccccc; text-decoration: none;">Ella Mai</a> · <a href="https://soundcloud.com/itsellamai/breakfast-in-bed" title="Breakfast In Bed" target="_blank" style="color: #cccccc; text-decoration: none;">Breakfast In Bed</a></div>
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/425539491&color=%2374b4bc&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/iamcardib" title="Cardi B" target="_blank" style="color: #cccccc; text-decoration: none;">Cardi B</a> · <a href="https://soundcloud.com/iamcardib/ring-feat-kehlani-1" title="Ring (feat. Kehlani)" target="_blank" style="color: #cccccc; text-decoration: none;">Ring (feat. Kehlani)</a></div>
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/1202773675&color=%234f1d3d&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; "><a href="https://soundcloud.com/nija-music" title="Nija" target="_blank" style="color: #cccccc; text-decoration: none;">Nija</a> · <a href="https://soundcloud.com/nija-music/not-one-of-them" title="Not One Of Them" target="_blank" style="color: #cccccc; text-decoration: none;">Not One Of Them</a></div>
+
+[Monolith by Monoprice M-15 V2 15in THX Certified Ultra 1000-Watt Subwoofer Amplifier, Piano Black Finish](https://www.monoprice.com/product?p_id=42852)
+<img src="https://images.monoprice.com/productlargeimages/428523.jpg" >
+
+## Dear_Muna
+12ozProphet Memento Mori Patch, for my weakening backpack
+
+<img src="https://cdn.shopify.com/s/files/1/3005/5554/products/12ozprophet-memento-mori-patch_720x.jpg?v=1524111434" >
+
+<img src="https://cdn.shopify.com/s/files/1/0815/6851/products/K-MOP_medium@2x.png?v=1575931706">
+
+<img src="https://www.graffiti.org/atl/am71.jpg"> 
+<img src="https://www.graffiti.org/atl/anime4.jpg">
+<a href="https://youtu.be/DAc1MXEOLgY" alt="WHY_THE_SEAMSTRESS_FEELiNG_ON_MY_WIFE_BREAST">SarTu, like Kool DJ Red Alert check him out on<span class="neonText"> 98.7 Kiss-FM </span> (12-4-88) </a>
+<img src="https://www.graffiti.org/atl/joe1.jpg">
+<img src="https://www.graffiti.org/atl/eros1.jpg">
+<img src="https://image-aws-us-west-2.vsco.co/12f8b0/56497/5cf66bae52aad8210f45cbaf/vsco5cf66bafc30a6.jpg">
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/F6wnB3Aa8TI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/m-a963Sd2dk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/509765250&color=%23683e30&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
+<img src="https://cdn.shopify.com/s/files/1/0921/3560/products/sb-1000-pro-pgw_1024x.png?v=1612802714">
+
+## Major Lazer - Get Free ft. Amber of the Dirty Projectors
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/ytIfSuy_mOA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+## J. Cole's documentary on HomeWrecking
+Muna this shit dope, he even stars in the shit... This kind of content ensures it would never happen iRL witha conscience niggah liyke dat owwn da mic
+
+<iframe width="100%" height="375" src="https://www.youtube.com/embed/jYdaQJzcAcw" title="J. Cole - She Knows (Explicit Video) ft. Amber Coffman, Cults" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 @nasa - [GoodMorning](https://www.facebook.com/permalink.php?story_fbid=pfbid0f6kcbYJ3jmYh5vLXZrBnkRs1DfVeu8AvX7A5tigt1ENL987vCSKK4sMdwiWCHzGZl&id=100084464911565)
 
 ## Watch Live: Demonstrators march in downtown LA in protest of deadly Minneapolis ICE shooting @DHS-GOV @WEATHER-GOV @NOAAGOV @NASA-GISS @NASA-DEVELOP WE HAVE A PROTEST in Los Angeles again @usgs @LA-County-iSD @BLACKGiRSLCODE 

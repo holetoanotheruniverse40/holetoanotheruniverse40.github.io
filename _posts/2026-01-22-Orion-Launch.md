@@ -10,12 +10,16 @@ image: Kelp_southAmerica_NGS.jpg
 [Live Views](https://youtu.be/nrVnsO_rdew) ::: [Radio](https://session.wefunkradio.com/radio/play) 
 - Jump to  [space-`weather`](#space-weather)
 -  Jump to  [`moon-Data`](#moon-data)
--  
+
+---
+
 ## Artemis 2
 # Splashdown 101: @USNavy @La-County-isd
 Joint Team to Recover Crew, Orion After Moon Missions
 [splashdown](https://www.nasa.gov/missions/artemis/artemis-2/splashdown-101-joint-team-to-recover-crew-orion-after-moon-missions/)
+
 ![https://www.nasa.gov/wp-content/uploads/2024/02/ksc-20240225-ph-kaa01-0071orig.jpg?resize=600,400](https://www.nasa.gov/wp-content/uploads/2024/02/ksc-20240225-ph-kaa01-0071orig.jpg?resize=600,400)
+
 @blackgirlscode t.i. on with MrsKing [link](https://youtu.be/mxAFTk3BBys?si=_wUhbyw0dMaw6nK5) @nasa-jpl @blackgirlscode 
 Basic Writing Skills w/ Cicely Tyson (1988) [WATCH](https://youtu.be/UnX47Odz3z4)
 
