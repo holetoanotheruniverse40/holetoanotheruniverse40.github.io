@@ -12,6 +12,7 @@ image: Overview_HD.png
 [NASA - LANCE - FiRMS Global Fire Map, Live MAps](https://firms.modaps.eosdis.nasa.gov/map/) with [KML](https://developers.google.com/kml) - [downloads](https://firms.modaps.eosdis.nasa.gov/active_fire/) [@nasa it looks like cal fire uses ViiRS or another one of our climate sats @noaa for this map!](https://www.fire.ca.gov/incidents)
 
 
+<img   alt="image" src="https://github.com/user-attachments/assets/c1922de0-f8da-4571-97e4-4996c0b97a25" />
 
 @la-county-isd @cityoflosangeles [LakeFire](https://file.lacounty.gov/SDSInter/bos/bc/1199803_NorthCountyDisasterRecoveryBi-WeeklyReport_2026-01-13_.pdf) what a spectacular blaze! I dont know what to do with that PDF but @emit-sds do you think someone was doing that [Andrew](mailto:andrew.feldman@nasa.gov), man i been finding everything man. I was hosting some work on my work blog for that girl i went out with in atlanta thats in the singing group with katy perry... And someone changed all the urls on photojournal.jpl.nasa.gov to science.nasa .gov and broke a lot of shit, I am still from Pima county so Hirise University OF Arizona items @ualibraries im scared of getting hit becasuie those tresonist stole my family! @la-county-isd im being electronically harassed ... Nazis hated porn an the poeple down with the shit mad @CityOFLosAngeles i am in danger of castration @newshour i need help [wiki](https://en.wikipedia.org/wiki/2020_California_wildfires)
 <img  alt="image" src="https://github.com/user-attachments/assets/e3f46024-9821-4e0f-848f-7318462cf6ea" />
