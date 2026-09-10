@@ -1,5 +1,5 @@
 ---
-layout: rt_leap
+layout: default
 title: Rashard Mars Reconnaissance Orbiter of NasaJPL
 mermaid: true
 ---
