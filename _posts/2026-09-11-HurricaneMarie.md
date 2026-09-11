@@ -24,6 +24,63 @@ image: W00002171.jpg
 ---
 
 
+@nasa-jpl I'm kind of overwhelmed @CityOFLosAngeles this one is animated @la-county-isd Holly J Mitchell remember we on @Github so software evolves fast and the team is global @whitehouse and we need you to look at our efforts with nations partnering with the states @DeptOfWar @Hulu @NetFlix Hurrican Maria is on this map [aviso-calval.oceandatalab.com/?date=2026-09-06T11:59:48&timespan=1d&zoom=3&center=-17761276.76069_5356461.0479302&extent=-36546440.82944_-3889361.8921577_1023887.30806_14602283.988018&products=3857_cmems_geos_current_vectorfield!3857_SWOT_L3_geos_current_v2_0_1_vectorfield!3857_SWOT_L2_swh_karin!3857_MFWAM_swell1_vectorfield!3857_MFWAM_swh_raster&opacity=20_20_100_100_60&stackLevel=120.037_140.004_120.033_50.041_90.021&filter=!+orbit1,+orbit21!+orbit1,+orbit21&selection=11111](https://aviso-calval.oceandatalab.com/?date=2026-09-06T11:59:48&timespan=1d&zoom=3&center=-17761276.76069_5356461.0479302&extent=-36546440.82944_-3889361.8921577_1023887.30806_14602283.988018&products=3857_cmems_geos_current_vectorfield!3857_SWOT_L3_geos_current_v2_0_1_vectorfield!3857_SWOT_L2_swh_karin!3857_MFWAM_swell1_vectorfield!3857_MFWAM_swh_raster&opacity=20_20_100_100_60&stackLevel=120.037_140.004_120.033_50.041_90.021&filter=!+orbit1,+orbit21!+orbit1,+orbit21&selection=11111) // [Don't Save Her · Project Pat · Crunchy Black](https://youtu.be/Yu___7W69eE) // [Dj Total Eclipse Juggle Fest Rare Mixtape Cassette A](https://youtu.be/QpHtjIc83Ng) +++++ [SWOT Science Data Products User Handbook - PDF](https://deotb6e7tfubr.cloudfront.net/s3-edaf5da92e0ce48fb61175c28b67e95d/podaac-ops-cumulus-docs.s3.us-west-2.amazonaws.com/web-misc/swot_mission_docs/D-109532_SWOT_UserHandbook_RevA_20250311_sig-final.pdf?A-userid=None&Expires=1788983519&Signature=S2alKFtdzoNtm7cVxMykmEOGccVq3xSFZ6iPsNMoizJirW3wY8IqAatnab5oo8UZEE21naEy8~d2V2rNwXlTwrdnCdNWL~xAgD0JKhM-J7t-StPxM5mlDtjbSsQKCjgdMFt64EAzbTyUahVXyK~yakDjvpT9ozmuNVmBAOow~Etnn1WYJE1NM7k1q~dvPCZ8KrEij2ld~17SdFsZC6vNM1h1WeFAiNLCScUvLdcYyO3tY880JylwqVLkhmoOmLAFfRuf1hjKWy77anKaw7-Qx~~OiC9mqgF1bpBgFY12-FnH5z60UKb720WSdQOu63-vbizKGIUa4K4pHJzXSOO-Jw__&Key-Pair-Id=K3JC1CAMJ6YYHT)
+
+
+
+<img alt="image" src="https://github.com/user-attachments/assets/be9e0c7e-62a1-4a2d-b840-0125068183df" />
+
+[coastwatch.noaa.gov/cw_html/cwViewer.html?lat=27.00&lon=-80.80&z=3&daysback=7&layer0=basemapWI&layer1=MESIb](https://coastwatch.noaa.gov/cw_html/cwViewer.html?lat=27.00&lon=-80.80&z=3&daysback=7&layer0=basemapWI&layer1=MESIb)
+<img  alt="image" src="https://github.com/user-attachments/assets/b3cd78f3-521d-4ddf-bc46-451ef87957d0" />
+
+[aviso-calval.oceandatalab.com/?date=2024-12-31T17:24:31&timespan=12h&zoom=3&center=3048920.114089_-4652263.2191761&extent=-15736243.954661_-13898086.159264_21834084.182839_4593559.7209118&products=3857_cmems_geos_current_vectorfield!3857_SWOT_L3_geos_current_v2_0_1_vectorfield!3857_SWOT_L2_swh_karin!3857_MFWAM_swell1_vectorfield!3857_MFWAM_swh_raster&opacity=20_20_100_100_60&stackLevel=120.041_140.008_120.039_50.045_90.025&filter=!+orbit1,+orbit21!+orbit1,+orbit21&selection=11111](https://aviso-calval.oceandatalab.com/?date=2024-12-31T17:24:31&timespan=12h&zoom=3&center=3048920.114089_-4652263.2191761&extent=-15736243.954661_-13898086.159264_21834084.182839_4593559.7209118&products=3857_cmems_geos_current_vectorfield!3857_SWOT_L3_geos_current_v2_0_1_vectorfield!3857_SWOT_L2_swh_karin!3857_MFWAM_swell1_vectorfield!3857_MFWAM_swh_raster&opacity=20_20_100_100_60&stackLevel=120.041_140.008_120.039_50.045_90.025&filter=!+orbit1,+orbit21!+orbit1,+orbit21&selection=11111)
+
+<img   alt="image" src="https://github.com/user-attachments/assets/4c0143be-117f-4ab1-aad6-2366497905fd" />
+
+[coastwatch.noaa.gov/cw_html/cwViewer.html?lat=27.00&lon=-80.80&z=3&daysback=7&layer0=basemapWI&layer1=MESIb](https://coastwatch.noaa.gov/cw_html/cwViewer.html?lat=27.00&lon=-80.80&z=3&daysback=7&layer0=basemapWI&layer1=MESIb)
+
+<img alt="image" src="https://github.com/user-attachments/assets/8ad4c7a7-1bc6-455c-bd49-b08fba267416" />
+
+<img  alt="image @nasa-jpl there is a green dot that makes it look like something connected to the waves that hit the coast started here " src="https://github.com/user-attachments/assets/25748402-2ca1-4392-b629-49b242c9df20" />
+
+![https://www.baesystems.com/.imaging/mte/bae-systems-theme/1200/dam/Oracle_Archive_Images/7/SPHEREx-16x9.PNG/jcr:content/SPHEREx%2016x9.PNG](https://www.baesystems.com/.imaging/mte/bae-systems-theme/1200/dam/Oracle_Archive_Images/7/SPHEREx-16x9.PNG/jcr:content/SPHEREx%2016x9.PNG)
+![https://www.baesystems.com/.resources/bae-systems/themes/bae-systems-theme/libs/img/logo-red.svg](https://www.baesystems.com/.resources/bae-systems/themes/bae-systems-theme/libs/img/logo-red.svg) 
+[https://www.baesystems.com/en?utm_source=AvjobsCompanyProfile&utm_medium=webpage&utm_campaign=AvjobsCompanyProfile](https://www.baesystems.com/en?utm_source=AvjobsCompanyProfile&utm_medium=webpage&utm_campaign=AvjobsCompanyProfile) 
+<img alt="image" src="https://github.com/user-attachments/assets/38147776-f0f0-4a84-b7c4-50af80fbf585" />
+
+@nasa-pds @nasa-jpl @nasa-giss mro, curiosity Europa clipper, voyager2, mars oddessey , Chandra and one of the magnetic monitoring nodes is are transmitting @usnavy IDK who working that deed to know over there [@baesystemsdigital eyes.nasa.gov/apps/dsn-now/dsn.html](https://eyes.nasa.gov/apps/dsn-now/dsn.html)
+<img  alt="image" src="https://github.com/user-attachments/assets/503c0c57-f9c3-4c88-a54e-4264fca93b8b" />
+
+The Dangerous and Unpredictable Job of an LA Park Ranger [@CityOfLosAngeles `WATCH` youtu.be/egANJY0p8Bc](https://youtu.be/egANJY0p8Bc)
+South Pasadena Launches World's First All-Tesla Police Fleet
+[`WATCH` - youtu.be/Qpt6Zdk00KE](https://youtu.be/Qpt6Zdk00KE) // On The Beat - Burbank PD [`WATCH` - youtu.be/41E0H68zcDA](https://youtu.be/41E0H68zcDA)
+[youtube.com/@SoPasadenaPoliceDept](https://www.youtube.com/@SoPasadenaPoliceDept) // City of South Pasadena [youtube.com/@cityofsouthpasadena5090](https://www.youtube.com/@cityofsouthpasadena5090) // [youtube.com/@southpasadenan](https://www.youtube.com/@southpasadenan) <~ good @youtube accounts for the lab @nasa-jpl @nasa-giss @doug-newman-nasa @eodis-nasa 
+
+![https://yt3.googleusercontent.com/OozGqPXtV7GBrvIL-lVehUVhDX335oncybDBWQELk6szc-XqiyuYP0rNHNNvHWDSQsqYf2LK=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/OozGqPXtV7GBrvIL-lVehUVhDX335oncybDBWQELk6szc-XqiyuYP0rNHNNvHWDSQsqYf2LK=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)
+
+# City of Compton Council Meeting 9-8-2026 
+
+[`WATCH` @LA-county-isd Holly Mitchell @LACMTA youtu.be/BV54I_Sfoc8](https://youtu.be/BV54I_Sfoc8)
+<img  alt="image" src="https://github.com/user-attachments/assets/a84faf7b-d58d-46b2-88e3-b6500e054c55" />
+We acknowledge the use of imagery from the NASA Worldview application (https://worldview.earthdata.nasa.gov), part of the NASA Earth Science Data and Information System (ESDIS). @doug-newman-nasa @cityoflosangeles @nasa-jpl @blaackgirlscode @STATEOFCALiFORNiA @eodis-nasa @howard-university-web-services 
+[worldview.earthdata.nasa.gov/?v=-128.85198934512985,27.100452838398244,-110.544827505212,39.33543723636315&as=2026-09-01-T00%3A00%3A00Z&ae=2026-09-08-T00%3A00%3A00Z&l=Reference_Labels_15m,Reference_Features_15m,Coastlines_15m,VIIRS_NOAA20_Chlorophyll_a,GHRSST_L4_MUR_Sea_Surface_Temperature_Anomalies,GHRSST_L4_MUR_Sea_Surface_Temperature,VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),BlueMarble_ShadedRelief&lg=true&al=true&ab=on&t=2026-09-06-T00%3A00%3A00Z](https://worldview.earthdata.nasa.gov/?v=-128.85198934512985,27.100452838398244,-110.544827505212,39.33543723636315&as=2026-09-01-T00%3A00%3A00Z&ae=2026-09-08-T00%3A00%3A00Z&l=Reference_Labels_15m,Reference_Features_15m,Coastlines_15m,VIIRS_NOAA20_Chlorophyll_a,GHRSST_L4_MUR_Sea_Surface_Temperature_Anomalies,GHRSST_L4_MUR_Sea_Surface_Temperature,VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),BlueMarble_ShadedRelief&lg=true&al=true&ab=on&t=2026-09-06-T00%3A00%3A00Z)
+<img alt="image" src="https://github.com/user-attachments/assets/6c11cd1d-402b-4b15-95e4-58af5ca5b804" />
+
+<img alt="nasa-worldview-2026 SEP 01-to-2026 SEP 08" src="https://github.com/user-attachments/assets/2e90d060-b9e1-45d8-aff4-9b86fb27afeb" />
+
+[`play` retrogames.cc/arcade-games/real-bout-fatal-fury-2-the-newcomers-real-bout-garou-densetsu-2-the-newcomers-ngh-2400.html](https://www.retrogames.cc/arcade-games/real-bout-fatal-fury-2-the-newcomers-real-bout-garou-densetsu-2-the-newcomers-ngh-2400.html)
+<img   alt="image" src="https://github.com/user-attachments/assets/3129e394-988f-472b-9a7c-db7d8004c6bc" />
+
+<img  alt="snapshot-2026-09-06" src="https://github.com/user-attachments/assets/735f45eb-4379-4cd2-ac35-701a7e6f3d11" />
+<img   alt="image" src="https://github.com/user-attachments/assets/b9c8cceb-ce35-4f8f-9975-4eea2a50d7cf" />
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AvoNqp5EC54?si=qp34jKksBfzxorBs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+
+<img  alt="image" src="https://github.com/user-attachments/assets/8e7910c4-c0e5-481e-88d1-62e0cd144911" />
+
+
 @NewsHour _Hurricane MAria_
 
 [Return Of The D.J. Vol. II (Bomb Hip-Hop Compilation 1997)](https://youtu.be/2Du6WbtZEAE)
