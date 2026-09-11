@@ -24,6 +24,87 @@ image: OCR-L-RESCUES-0909-01.webp
 ---
 
 
+​@riconasty can we clean up in city council my dfacs case with @keishaforga @SupervisorHollyJMitchell @ATLChannel26 / @HeiressDoesItAll can u c how coral feel abt me w/another girl ? @t.i. @lanajharris
+
+<img  alt="image" src="https://github.com/user-attachments/assets/819adefc-cc87-4d8a-950b-32169c6ef19b" />
+
+![https://assets.science.nasa.gov/dynamicimage/assets/science/esd/eo/images/iotd/2026/a-trio-of-tropical-cyclones-in-the-pacific/pacificstorms_epic_20260901.jpg @cityoflosangeles @la-county-isd @nasa-jpl](https://assets.science.nasa.gov/dynamicimage/assets/science/esd/eo/images/iotd/2026/a-trio-of-tropical-cyclones-in-the-pacific/pacificstorms_epic_20260901.jpg) 
+
+![https://podaac.jpl.nasa.gov/sites/default/files/image/custom_thumbs/podaac_logo.png](https://podaac.jpl.nasa.gov/sites/default/files/image/custom_thumbs/podaac_logo.png)
+@doug-newman-nasa hi irs rashard from @nasa-jpl , we had an ecological disaster over the weekend and some property got damaged ... here is a [🗺️floodmap @nbcnews @cbs-news-data worldview.earthdata.nasa.gov🗺️](https://worldview.earthdata.nasa.gov/?v=-118.39699127749203,33.6083172435267,-117.99589272888717,33.876378154723014&l=Reference_Labels_15m,Reference_Features_15m,Coastlines_15m,MODIS_Combined_Flood_3-Day(disabled=3-4),MODIS_Combined_Flood_2-Day(disabled=2-3-4),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&l1=Reference_Labels_15m(hidden),Reference_Features_15m(hidden),Coastlines_15m,MODIS_Combined_Flood_3-Day(disabled=2-3-4),MODIS_Combined_Flood_2-Day(disabled=4),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg1=true&ca=true&cv=80&s=-118.1813,33.7717&t=2022-09-08-T00%3A00%3A00Z&t1=2022-09-07-T00%3A00%3A00Z) play with the comparison slider @CityOfLosAngeles  We need coverage in this part of the pacific @USNAVY what happened to the bouys @PODACC did someone steal ours to prep for a tsunami idk @deptofwar @la-county-isd @CityOfSantaMonica @longbeachinnovationteam ... @commercegov i will email we dealing with a lot of courrupted accounts @NOAAgov the property maps can start  @doug-newman-nasa can @stateofcalifornia  get supported here or do we have enough and its not monitored porperly like the landers ? [@CityofLosAngeles sealevel.nasa.gov/flooding-analysis-tool-pacific-islands/sea-level-rise?units=meters](https://sealevel.nasa.gov/flooding-analysis-tool-pacific-islands/sea-level-rise?units=meters) 
+
+@nasa @nasa-jpl Jason is offline @deptofwar
+[https://science.nasa.gov/missions/ostm/ @usgs @nasa-jpl](https://science.nasa.gov/missions/ostm/)
+<img  alt="image" src="https://github.com/user-attachments/assets/b3b9a7d5-d0b7-4853-aac2-f4e91fb0beb7" />
+
+
+[2025 NOAA NGS DSS 4-Band 8 Bit Imagery: Long Beach, CA @NOAA-OWP @CityOFLOSANGELES](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/index.html)
+<img  alt="image" src="https://github.com/user-attachments/assets/52111640-eca6-465f-84cb-d65c9b5a6aba" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/54a4a3c3-d50a-4189-b50c-1281297f8a0f" />
+
+
+
+
+ ## The Hurricane Missed California Its Waves Didn’t
+@Cbs-news-data @newshour 
+[`WATCH` - @WHiTEHOUSE @USGS youtu.be/gGKr9kvw4IY?si=AJUs9b1NEeEJWdab](https://youtu.be/gGKr9kvw4IY?si=AJUs9b1NEeEJWdab)
+[youtube.com/@JonathanPetramala](https://www.youtube.com/@JonathanPetramala)
+<img  alt="image" src="https://github.com/user-attachments/assets/9c4cbea5-a5ef-43ce-b638-714d49c56872" />
+
+![https://yt3.googleusercontent.com/n993ig0zTHL2VxylLarpCycYUjUO0trKsdD75oaDaCVVjh8GGWmrmd2VqT3F0sqSJysKhP4DyEg=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/n993ig0zTHL2VxylLarpCycYUjUO0trKsdD75oaDaCVVjh8GGWmrmd2VqT3F0sqSJysKhP4DyEg=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)
+
+ <img   alt="image" src="https://github.com/user-attachments/assets/abb8eaa6-700c-4efd-86d3-eebfc2e55002" />
+
+## 2025 NOAA NGS DSS 4-Band 8 Bit Imagery:
+# Long Beach, CA - [DataAccess AllFiles @nmfs-ost](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/index.html)
+[fisheries.noaa.gov/inport/item/76024](https://www.fisheries.noaa.gov/inport/item/76024)
+![https://sso.noaa.gov/openam/XUI/img/noaa-login-banner.70fd8ea9.png](https://sso.noaa.gov/openam/XUI/img/noaa-login-banner.70fd8ea9.png)
+@howard-university-web-services this link will be up for 14 days @whitehouse @nasa-jpl @podaac @nasa @blackgirlscode
+[coast.noaa.gov/dataviewer/pickup/1065946/LongBeach_2025_NOAA_RashardKellyNASAJPLMROECOSTRESSiSSJUNO_LanaHarris_Virtiserv__2025_4BandImagery_LongBeachCA_J1418291.zip](https://coast.noaa.gov/dataviewer/pickup/1065946/LongBeach_2025_NOAA_RashardKellyNASAJPLMROECOSTRESSiSSJUNO_LanaHarris_Virtiserv__2025_4BandImagery_LongBeachCA_J1418291.zip) /// [github.com/nmfs-ost](https://github.com/nmfs-ost) // [Shoreline Data Explorer nsde.ngs.noaa.gov/](https://nsde.ngs.noaa.gov/) // [Coastal Mapping Program of Port of San Diego, CA, CA2001-CS-T](https://www.fisheries.noaa.gov/inport/item/67610)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/83443291-2072-4325-9458-595993718872" />
+
+_Long Beach Levees @La-county-isd_ [396000e3735000n @nasa-giss @nasa-openscapes](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/396000e3735000n.tif) _coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/396000e3735000n.tif_ . . . Similar design in [New Oreleans - coastalimagery.blob.core.windows.net/digitalcoast/Katrina](https://coastalimagery.blob.core.windows.net/digitalcoast/Katrina_RGB_2005_4916/K_28089-H4_11.tif)
+
+@la-county-isd @nasa-jpl @doug-newman-nasa @eodis-nasa 
+[@NOAAGov archive.org/download/longbeach_202605/CBS_LOS_ANGELES_LANAJHARRIS_KARENBASS_SPACEBEACH_NASAPODAACrashardLongBeachissuesevacuationordersaspowerfulwaveserodeLACountycoastline.mp4 @CityOfLosAngeles @StateOfCalifornia @La-coiunty-isd @cityofsandiego @hsfl](https://archive.org/download/longbeach_202605/CBS_LOS_ANGELES_LANAJHARRIS_KARENBASS_SPACEBEACH_NASAPODAACrashardLongBeachissuesevacuationordersaspowerfulwaveserodeLACountycoastline.mp4)
+![https://www.noaa.gov/sites/default/files/2022-03/noaa_emblem_logo-2022.png](https://www.noaa.gov/sites/default/files/2022-03/noaa_emblem_logo-2022.png)
+
+
+
+
+<img  alt="image" src="https://github.com/user-attachments/assets/d21895d7-6526-43c9-8e53-c4f86f4c91a4" />
+
+@cbs-news-data @nbcnews @nasa-jpl @CityOFLosAngeles @StateOfCAlifornia
+
+[396000e3738000n -.tif 543.32 MB @nasa-jpl](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/396000e3738000n.tif)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/ce7b115a-cff3-4db5-9814-6409232b020c" />
+
+[384000e3738000n.tif 487mb -.tif @noaa-gov](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/384000e3738000n.tif)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/ca42caf2-02c2-443b-adef-99950260b2ef" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/a41763f4-3f75-4a35-9be8-6a17a2979ba7" />
+
+[DataAccess AllFiles](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/index.html)
+
+
+
+<img   alt="image" src="https://github.com/user-attachments/assets/11008b07-f475-464d-8a4a-2cfd77a846f3" />
+
+
+![https://d9-wret.s3.us-west-2.amazonaws.com/assets/palladium/production/s3fs-public/styles/full_width/public/thumbnails/image/USGS_ID_white-on-green.png?itok=MQJ-2Lfs](https://d9-wret.s3.us-west-2.amazonaws.com/assets/palladium/production/s3fs-public/styles/full_width/public/thumbnails/image/USGS_ID_white-on-green.png?itok=MQJ-2Lfs) 
+
+{% highlight ruby %}
+1 # HOLE_TO_ANOTHER_UNiVERSE##############################
+2 # TO####################################################
+3 # ANOTHER###############################################
+4 # UNiVERSE#########################VirtiservLatrice#####
+{% endhighlight %}
+
+
 @nasa-jpl I'm kind of overwhelmed @CityOFLosAngeles this one is animated @la-county-isd Holly J Mitchell remember we on @Github so software evolves fast and the team is global @whitehouse and we need you to look at our efforts with nations partnering with the states @DeptOfWar @Hulu @NetFlix Hurrican Maria is on this map [aviso-calval.oceandatalab.com/?date=2026-09-06T11:59:48&timespan=1d&zoom=3&center=-17761276.76069_5356461.0479302&extent=-36546440.82944_-3889361.8921577_1023887.30806_14602283.988018&products=3857_cmems_geos_current_vectorfield!3857_SWOT_L3_geos_current_v2_0_1_vectorfield!3857_SWOT_L2_swh_karin!3857_MFWAM_swell1_vectorfield!3857_MFWAM_swh_raster&opacity=20_20_100_100_60&stackLevel=120.037_140.004_120.033_50.041_90.021&filter=!+orbit1,+orbit21!+orbit1,+orbit21&selection=11111](https://aviso-calval.oceandatalab.com/?date=2026-09-06T11:59:48&timespan=1d&zoom=3&center=-17761276.76069_5356461.0479302&extent=-36546440.82944_-3889361.8921577_1023887.30806_14602283.988018&products=3857_cmems_geos_current_vectorfield!3857_SWOT_L3_geos_current_v2_0_1_vectorfield!3857_SWOT_L2_swh_karin!3857_MFWAM_swell1_vectorfield!3857_MFWAM_swh_raster&opacity=20_20_100_100_60&stackLevel=120.037_140.004_120.033_50.041_90.021&filter=!+orbit1,+orbit21!+orbit1,+orbit21&selection=11111) // [Don't Save Her · Project Pat · Crunchy Black](https://youtu.be/Yu___7W69eE) // [Dj Total Eclipse Juggle Fest Rare Mixtape Cassette A](https://youtu.be/QpHtjIc83Ng) +++++ [SWOT Science Data Products User Handbook - PDF](https://deotb6e7tfubr.cloudfront.net/s3-edaf5da92e0ce48fb61175c28b67e95d/podaac-ops-cumulus-docs.s3.us-west-2.amazonaws.com/web-misc/swot_mission_docs/D-109532_SWOT_UserHandbook_RevA_20250311_sig-final.pdf?A-userid=None&Expires=1788983519&Signature=S2alKFtdzoNtm7cVxMykmEOGccVq3xSFZ6iPsNMoizJirW3wY8IqAatnab5oo8UZEE21naEy8~d2V2rNwXlTwrdnCdNWL~xAgD0JKhM-J7t-StPxM5mlDtjbSsQKCjgdMFt64EAzbTyUahVXyK~yakDjvpT9ozmuNVmBAOow~Etnn1WYJE1NM7k1q~dvPCZ8KrEij2ld~17SdFsZC6vNM1h1WeFAiNLCScUvLdcYyO3tY880JylwqVLkhmoOmLAFfRuf1hjKWy77anKaw7-Qx~~OiC9mqgF1bpBgFY12-FnH5z60UKb720WSdQOu63-vbizKGIUa4K4pHJzXSOO-Jw__&Key-Pair-Id=K3JC1CAMJ6YYHT)
 
 
