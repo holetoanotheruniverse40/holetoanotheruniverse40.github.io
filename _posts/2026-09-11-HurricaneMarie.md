@@ -1,14 +1,83 @@
 ---
 layout: saturn
-title:  Saturn
+title:  HurricaneMarie
 published: true
-date:   2026-08-11 01:46:06 
-permalink: /saturn 
+date:   2026-09-11 01:46:06 
+permalink: /hurricanemarie
 tags: saturn titan cassini galilleo voyager
 image: W00002171.jpg
 ---
 
 
+<picture itemprop="productionCompany" itemtype="https://schema.org/Organization">
+  
+  <source src="https://ecostress.jpl.nasa.gov/logo.png" type="image/png" />
+  
+  <source src="https://github.com/user-attachments/assets/ca25b7f2-76f1-42b6-8882-9d0f09fc6363" type="image/png" />
+  
+  <img itemprop="countryOfOrigin" itemtype="https://schema.org/Country" alt=" @deptofwar logo @nasa-jpl https://ecostress.jpl.nasa.gov/logo.png" src="https://github.com/user-attachments/assets/ca25b7f2-76f1-42b6-8882-9d0f09fc6363" />
+  
+</picture>
+
+[CoLD SToRAGE - Messij](https://youtu.be/4uQnXvRndcE) // [LateNightTales - Bonobo](https://youtu.be/leeFJHgCRlw?si=rrStsO_T4_uv1uZA)
+
+---
+
+# MAri3 w/ PrecipitationHighLights
+@nbcnews @nasajpl @podaac - Rashard @cityoflosangeles 
+Tony! Toni! Toné! - It Never Rains In Southern California
+[`WATCH` - youtu.be/e1YYqeKUp-M](https://youtu.be/e1YYqeKUp-M) // [ I Ain´t Mad At Cha - 2Pac Ft. Danny Boy](https://youtu.be/oXkKURgzYVY)
+<img  alt="image" src="https://github.com/user-attachments/assets/e24d243a-542c-476f-bc49-b634d04bc34d" />
+
+[Dru Hill - In My Bed](https://youtu.be/_Ixip0K2r10) 
+<img  alt="image" src="https://github.com/user-attachments/assets/1ba9fb1d-94b0-4a41-ba5d-d1db58384520" />
+
+[https://worldview.earthdata.nasa.gov/?v=-146.8084947355166,13.954597382713416,-104.09308360930692,42.50202561062584&as=2026-09-03-T00%3A00%3A00Z&ae=2026-09-08-T00%3A00%3A00Z&l=Reference_Labels_15m,Reference_Features_15m,Coastlines_15m(hidden),IMERG_Precipitation_Rate,OCI_PACE_True_Color,VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=false&al=true&ab=on&t=2026-09-06-T00%3A00%3A00Z](https://worldview.earthdata.nasa.gov/?v=-146.8084947355166,13.954597382713416,-104.09308360930692,42.50202561062584&as=2026-09-03-T00%3A00%3A00Z&ae=2026-09-08-T00%3A00%3A00Z&l=Reference_Labels_15m,Reference_Features_15m,Coastlines_15m(hidden),IMERG_Precipitation_Rate,OCI_PACE_True_Color,VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=false&al=true&ab=on&t=2026-09-06-T00%3A00%3A00Z) 
+
+<img  alt="image" src="https://github.com/user-attachments/assets/5ad5b2a8-0938-4c4f-a279-5cd0103b986e" />
+
+
+
+<img  alt="snapshot-2026-09-06" src="https://github.com/user-attachments/assets/0a3db1eb-4073-46f8-9cb0-7c6ab5dbc3d4" />
+
+
+
+## Hurricane MArie
+[https://worldview.earthdata.nasa.gov/?v=-136.99937294724108,16.20073452649428,-104.69159728436418,37.79256479623875&z=4&ics=true&ici=5&icd=10&l=Reference_Labels_15m(hidden),DoS_International_Boundaries(hidden),Coastlines_15m(hidden),GOES-West_ABI_Air_Mass(hidden),GOES-West_ABI_Band13_Clean_Infrared(hidden),GOES-West_ABI_Band2_Red_Visible_1km(opacity=0.56),GOES-West_ABI_GeoColor(hidden),OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor(hidden),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&t=2026-09-06-T17%3A03%3A59Z](https://worldview.earthdata.nasa.gov/?v=-136.99937294724108,16.20073452649428,-104.69159728436418,37.79256479623875&z=4&ics=true&ici=5&icd=10&l=Reference_Labels_15m(hidden),DoS_International_Boundaries(hidden),Coastlines_15m(hidden),GOES-West_ABI_Air_Mass(hidden),GOES-West_ABI_Band13_Clean_Infrared(hidden),GOES-West_ABI_Band2_Red_Visible_1km(opacity=0.56),GOES-West_ABI_GeoColor(hidden),OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor(hidden),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&t=2026-09-06-T17%3A03%3A59Z)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/fb5b97af-816c-4977-889a-d528191b93fa" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/0ec5b46b-e6bf-4b4f-96fb-625e1a7a0c0e" />
+
+[@CityOfLOSANGELES worldview.earthdata.nasa.gov/?v=-135.1249151580117,18.33740940959113,-104.67635113599653,38.68669724608642&z=4&ics=true&ici=5&icd=10&l=Reference_Labels_15m,DoS_International_Boundaries(hidden),Coastlines_15m,GOES-West_ABI_Air_Mass(hidden),GOES-West_ABI_Band13_Clean_Infrared,GOES-West_ABI_Band2_Red_Visible_1km,GOES-West_ABI_GeoColor,OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor(hidden),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&t=2026-09-06-T17%3A03%3A59Z](https://worldview.earthdata.nasa.gov/?v=-135.1249151580117,18.33740940959113,-104.67635113599653,38.68669724608642&z=4&ics=true&ici=5&icd=10&l=Reference_Labels_15m,DoS_International_Boundaries(hidden),Coastlines_15m,GOES-West_ABI_Air_Mass(hidden),GOES-West_ABI_Band13_Clean_Infrared,GOES-West_ABI_Band2_Red_Visible_1km,GOES-West_ABI_GeoColor,OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor(hidden),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&t=2026-09-06-T17%3A03%3A59Z)
+<img  alt="image" src="https://github.com/user-attachments/assets/e98dff82-6dbb-4a9b-a8b5-a450a8123873" />
+
+[worldview.earthdata.nasa.gov/?v=-131.6737056280827,19.96643058507049,-109.2496069160361,34.95283318965609&z=4&ics=true&ici=5&icd=10&l=Reference_Labels_15m,DoS_International_Boundaries(hidden),Coastlines_15m,GOES-West_ABI_Air_Mass,GOES-West_ABI_Band13_Clean_Infrared,GOES-West_ABI_Band2_Red_Visible_1km,GOES-West_ABI_GeoColor,OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor(hidden),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&t=2026-09-06-T17%3A03%3A59Z](https://worldview.earthdata.nasa.gov/?v=-131.6737056280827,19.96643058507049,-109.2496069160361,34.95283318965609&z=4&ics=true&ici=5&icd=10&l=Reference_Labels_15m,DoS_International_Boundaries(hidden),Coastlines_15m,GOES-West_ABI_Air_Mass,GOES-West_ABI_Band13_Clean_Infrared,GOES-West_ABI_Band2_Red_Visible_1km,GOES-West_ABI_GeoColor,OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor(hidden),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&t=2026-09-06-T17%3A03%3A59Z)
+<img  alt="image" src="https://github.com/user-attachments/assets/789b756d-7d42-400b-9036-07434506e026" />
+Profile Information
+Name: Rashard I Kelly
+Username: rashardkelly
+Email Address: holetoanotheruniverse40@gmail.com
+Organization: Mars Reconnocinse Orbiter #NasaJPL #La_CanaDa_FlintRidge Los Angeles County California
+Country: United States
+Member Since: 08-24-2024
+Last Authentication: 09-10-2026
+Federated User: False
+Application Creator: False
+User Type: Science Team
+Study Area: Atmospheric Aerosols
+Affiliation: Government
+Allow Email Notifications from Applications: True
+Agreed To Meris EULA: True
+Agreed To Sentinel-3 EULA: True
+Protection and maintenance of user profile information is described in NASA's Web Privacy Policy
+
+For questions regarding the EOSDIS Earthdata Login, please contact Earthdata Support
+
+
+V 4.231.25 Home NASA Accessibility
+NASA Official: Doug Newman 
+@nasa-pds contact Dwayne gooden for a report on my behavior in Atlanta @marinecoders @doug-newman-nasa @DEPTofWAR @BLACKGiRLSCODE @DiSNEY @NETFLiX 
 
 
 # Image of SATURN
