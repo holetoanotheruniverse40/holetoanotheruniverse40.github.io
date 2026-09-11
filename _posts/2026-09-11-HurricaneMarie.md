@@ -23,6 +23,22 @@ image: OCR-L-RESCUES-0909-01.webp
 
 ---
 
+{% highlight ruby %}
+1 # HOLE_TO_ANOTHER_UNiVERSE##############################
+2 # TO####################################################
+3 # ANOTHER###############################################
+4 # UNiVERSE#########################HurricaneMArie @nasa#
+{% endhighlight %}
+
+ ## The Hurricane Missed California Its Waves Didn’t
+@Cbs-news-data @newshour 
+[`WATCH` - @WHiTEHOUSE @USGS youtu.be/gGKr9kvw4IY?si=AJUs9b1NEeEJWdab](https://youtu.be/gGKr9kvw4IY?si=AJUs9b1NEeEJWdab)
+[youtube.com/@JonathanPetramala](https://www.youtube.com/@JonathanPetramala)
+<img  alt="image" src="https://github.com/user-attachments/assets/9c4cbea5-a5ef-43ce-b638-714d49c56872" />
+
+![https://yt3.googleusercontent.com/n993ig0zTHL2VxylLarpCycYUjUO0trKsdD75oaDaCVVjh8GGWmrmd2VqT3F0sqSJysKhP4DyEg=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/n993ig0zTHL2VxylLarpCycYUjUO0trKsdD75oaDaCVVjh8GGWmrmd2VqT3F0sqSJysKhP4DyEg=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)
+
+ <img   alt="image" src="https://github.com/user-attachments/assets/abb8eaa6-700c-4efd-86d3-eebfc2e55002" />
 
 ​@riconasty can we clean up in city council my dfacs case with @keishaforga @SupervisorHollyJMitchell @ATLChannel26 / @HeiressDoesItAll can u c how coral feel abt me w/another girl ? @t.i. @lanajharris
 
@@ -45,16 +61,6 @@ image: OCR-L-RESCUES-0909-01.webp
 
 
 
-
- ## The Hurricane Missed California Its Waves Didn’t
-@Cbs-news-data @newshour 
-[`WATCH` - @WHiTEHOUSE @USGS youtu.be/gGKr9kvw4IY?si=AJUs9b1NEeEJWdab](https://youtu.be/gGKr9kvw4IY?si=AJUs9b1NEeEJWdab)
-[youtube.com/@JonathanPetramala](https://www.youtube.com/@JonathanPetramala)
-<img  alt="image" src="https://github.com/user-attachments/assets/9c4cbea5-a5ef-43ce-b638-714d49c56872" />
-
-![https://yt3.googleusercontent.com/n993ig0zTHL2VxylLarpCycYUjUO0trKsdD75oaDaCVVjh8GGWmrmd2VqT3F0sqSJysKhP4DyEg=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/n993ig0zTHL2VxylLarpCycYUjUO0trKsdD75oaDaCVVjh8GGWmrmd2VqT3F0sqSJysKhP4DyEg=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)
-
- <img   alt="image" src="https://github.com/user-attachments/assets/abb8eaa6-700c-4efd-86d3-eebfc2e55002" />
 
 ## 2025 NOAA NGS DSS 4-Band 8 Bit Imagery:
 # Long Beach, CA - [DataAccess AllFiles @nmfs-ost](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/index.html)
