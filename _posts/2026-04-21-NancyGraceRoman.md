@@ -58,6 +58,16 @@ Webb Mission reqs [JWST-RQMT-000634](https://spacese.spacegrant.org/uploads/Requ
 thats some sort of landslid in a coffee table book i found at central and we are supposed to treack those things, and you all hurt me making miss the dark matter telescope launch you .,.. none of you know how a technical person that is physically inthe world acts or feels and you hurt me alot!!! thats all  @michelleobama @lapubliclibrary
 @hot97 @Lanajharris
 
+
+<img   alt="image (1)-11  @nasa-jpl @nasa-pds acquisition sign for our county @la-county-isd Roman Space Telescope DSS 36 DSS 34 @blackgirlscode @howard-university-web-services @usgs @podaac @stateofcalifornia @cityoflosangeles  " src="https://github.com/user-attachments/assets/5cfb195b-41a9-4ae9-ab0f-4e01da8e0a23" />
+
+<img  alt="image @nasa-jpl @nasa-pds acquisition sign for our county @la-county-isd Roman Space Telescope DSS 36 DSS 34 @blackgirlscode @howard-university-web-services @usgs @podaac @stateofcalifornia @cityoflosangeles (1)-12" src="https://github.com/user-attachments/assets/a0a1f5c3-d958-47d7-8d69-ef132e69950f" />
+
+<img alt="image@nasa-jpl @nasa-pds acquisition sign for our county @la-county-isd Roman Space Telescope DSS 36 DSS 34 @blackgirlscode @howard-university-web-services @usgs @podaac @stateofcalifornia @cityoflosangeles" src="https://github.com/user-attachments/assets/bb8f4a09-6c57-4b1c-80ad-cde4e8d3dd43" />
+
+<img   alt="image @nasa-jpl @nasa-pds acquisition sign for our county @la-county-isd Roman Space Telescope DSS 36 DSS 34 @blackgirlscode @howard-university-web-services @usgs @podaac @stateofcalifornia @cityoflosangeles" src="https://github.com/user-attachments/assets/821c72a1-05cd-48c5-9ce9-e6d17669dd94" />
+
+
 [WATCH - Tracking NASA's Nancy Grace Roman Space Telescope with LIVE view from Space Station](https://www.youtube.com/watch?v=U2Ly0Q-BXqA) //// [youtube.com/@moterworld](https://www.youtube.com/@moterworld)
 <img alt="image image @nasa-jpl @nasa-pds acquisition sign for our county @la-county-isd Roman Space Telescope DSS 36 DSS 34 @blackgirlscode @howard-university-web-services @usgs @podaac @stateofcalifornia @cityoflosangeles" src="https://github.com/user-attachments/assets/bb8f4a09-6c57-4b1c-80ad-cde4e8d3dd43" />
 <img   alt="image @nasa-jpl @nasa-pds acquisition sign for our county @la-county-isd Roman Space Telescope DSS 36 DSS 34 @blackgirlscode @howard-university-web-services @usgs @podaac @stateofcalifornia @cityoflosangeles" src="https://github.com/user-attachments/assets/821c72a1-05cd-48c5-9ce9-e6d17669dd94" />
