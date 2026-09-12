@@ -5,17 +5,10 @@ published: true
 title: "Nancy Grace Roman Space Telescope"
 image: Roman_Mirror_Overlay_Still.jpg
 author: "RashardKelly @nasa-jpl"
+date:   2026-09-12 01:51:06 -0800
 permalink: /nancygrace
 ---
 
-
-
-[WATCH - Tracking NASA's Nancy Grace Roman Space Telescope with LIVE view from Space Station](https://www.youtube.com/watch?v=U2Ly0Q-BXqA) //// [youtube.com/@moterworld](https://www.youtube.com/@moterworld)
-<img alt="image image @nasa-jpl @nasa-pds acquisition sign for our county @la-county-isd Roman Space Telescope DSS 36 DSS 34 @blackgirlscode @howard-university-web-services @usgs @podaac @stateofcalifornia @cityoflosangeles" src="https://github.com/user-attachments/assets/bb8f4a09-6c57-4b1c-80ad-cde4e8d3dd43" />
-<img   alt="image @nasa-jpl @nasa-pds acquisition sign for our county @la-county-isd Roman Space Telescope DSS 36 DSS 34 @blackgirlscode @howard-university-web-services @usgs @podaac @stateofcalifornia @cityoflosangeles" src="https://github.com/user-attachments/assets/821c72a1-05cd-48c5-9ce9-e6d17669dd94" />
-[github.com/usdot](https://github.com/usdot) @usdot @nasa-jpl [@Nasa-Giss to KEnnedy Trip](https://svs.gsfc.nasa.gov/15064/) 
-
-![https://svs.gsfc.nasa.gov/vis/a010000/a015000/a015064/YTframe_RomanTRANSPORT_Still.jpg](https://svs.gsfc.nasa.gov/vis/a010000/a015000/a015064/YTframe_RomanTRANSPORT_Still.jpg) 
 
 ## NASA News Conference: 
 Nancy Grace Roman Space Telescope is Complete
@@ -55,6 +48,23 @@ ExoPlanet Resourses
 Webb Mission reqs [JWST-RQMT-000634](https://spacese.spacegrant.org/uploads/Requirements%20Config/JWST%20Mission%20Requirements%20Document.pdf)
 
 <img  alt="image" src="https://github.com/user-attachments/assets/6c724ccb-578b-46b0-a11e-00a70890b271" />
+
+## Why NASA’s Roman Space Telescope Will Make Discoveries Scientists Don't Expect
+[WATCH - https://youtu.be/FqZTQA6p7Tc](https://youtu.be/FqZTQA6p7Tc) ++ [🎼Slippin' Into Darkness · War🎵](https://youtu.be/pBNZevgJH1g?si=gZBR8-4zQkbsYhEJ)
+<img   alt="image" src="https://github.com/user-attachments/assets/00640704-6f17-494c-9a63-6f766653a3e2" />
+
+@NASA-PDS ok i messed up again, im mad at your sister... but not im better #VirtiservRashard @NASAJPL @NASAEARTHDATA but still *italics* @LANAJHARRiS i got discouraged because i missed the nancy grace roman launch @repkarenbass https://hirise-pds.lpl.arizona.edu/PDS/EXTRAS/RDR/ESP/ORB_016200_016299/ESP_016228_2650/ESP_016228_2650_IRB.NOMAP.browse.jpg <~ @RobinBarnes @chloebaileywashere
+@howarduniversity
+thats some sort of landslid in a coffee table book i found at central and we are supposed to treack those things, and you all hurt me making miss the dark matter telescope launch you .,.. none of you know how a technical person that is physically inthe world acts or feels and you hurt me alot!!! thats all  @michelleobama @lapubliclibrary
+@hot97 @Lanajharris
+
+[WATCH - Tracking NASA's Nancy Grace Roman Space Telescope with LIVE view from Space Station](https://www.youtube.com/watch?v=U2Ly0Q-BXqA) //// [youtube.com/@moterworld](https://www.youtube.com/@moterworld)
+<img alt="image image @nasa-jpl @nasa-pds acquisition sign for our county @la-county-isd Roman Space Telescope DSS 36 DSS 34 @blackgirlscode @howard-university-web-services @usgs @podaac @stateofcalifornia @cityoflosangeles" src="https://github.com/user-attachments/assets/bb8f4a09-6c57-4b1c-80ad-cde4e8d3dd43" />
+<img   alt="image @nasa-jpl @nasa-pds acquisition sign for our county @la-county-isd Roman Space Telescope DSS 36 DSS 34 @blackgirlscode @howard-university-web-services @usgs @podaac @stateofcalifornia @cityoflosangeles" src="https://github.com/user-attachments/assets/821c72a1-05cd-48c5-9ce9-e6d17669dd94" />
+[github.com/usdot](https://github.com/usdot) @usdot @nasa-jpl [@Nasa-Giss to KEnnedy Trip](https://svs.gsfc.nasa.gov/15064/) 
+
+![https://svs.gsfc.nasa.gov/vis/a010000/a015000/a015064/YTframe_RomanTRANSPORT_Still.jpg](https://svs.gsfc.nasa.gov/vis/a010000/a015000/a015064/YTframe_RomanTRANSPORT_Still.jpg) 
+
 
 
 Exoplanet Modeling and Analysis Center
