@@ -10,14 +10,528 @@ permalink: /virtiserv
 
 
 
-[Kenny Rogers - The Gambler](https://youtu.be/7hx4gdlfamo) // [Troubles · Alicia Keys](https://youtu.be/dsadjRYwaxY) // [Rico Nasty - Animal (Prod By. Mel-O-Dee)](https://youtu.be/bUZEaXgFYqM?si=vLCMjW3zBOO2Vxcd) // [Perfect Match · Cella Dwellas @doug-newman-nasa](https://youtu.be/5WHySdRlcUE?si=9Ds5oZPwNV7XzlU3)
-
----
-
 ## Rashard Kelly 
  MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt @ForAtlanta - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/) . . . @ucla hi from [Remote @Nasa-JPL](https://holetoanotheruniverse40.github.io/compiling/) 
 
 <img  alt="image" src="https://github.com/user-attachments/assets/ff698200-69e1-455c-a0ad-7ed66a863887" />
+<picture itemprop="productionCompany" itemtype="https://schema.org/Organization">
+  
+  <source src="https://ecostress.jpl.nasa.gov/logo.png" type="image/png" />
+  
+  <source src="https://github.com/user-attachments/assets/ca25b7f2-76f1-42b6-8882-9d0f09fc6363" type="image/png" />
+  
+  <img itemprop="countryOfOrigin" itemtype="https://schema.org/Country" alt=" @deptofwar logo @nasa-jpl https://ecostress.jpl.nasa.gov/logo.png" src="https://github.com/user-attachments/assets/ca25b7f2-76f1-42b6-8882-9d0f09fc6363" />
+  
+</picture>
+
+
+
+
+[CoLD SToRAGE - Messij](https://youtu.be/4uQnXvRndcE) // [LateNightTales - Bonobo](https://youtu.be/leeFJHgCRlw?si=rrStsO_T4_uv1uZA) // [M.I.A. - Bring The Noize](https://youtu.be/RvUVxYndYuU) // [Chloe Bailey Reveals What She's Looking For In Her Next Partner](https://www.youtube.com/watch?v=HfPuYiwvS1Q) // [Chloe Bailey Heated After Troll Mentions String Showing During Her Essence Fest Performance! 😡](https://www.youtube.com/watch?v=IU9hL9qVaEs) //  [Artifacts - Between A Rock And A Hard Place 1994 FULL ALBUM](https://www.youtube.com/watch?v=vCu6ztxthXI) //  [Dr Dre - The Roadium Mix Tape - Criminal](https://www.youtube.com/watch?v=8oeff7LxaP4)
+[Kenny Rogers - The Gambler](https://youtu.be/7hx4gdlfamo) // [Troubles · Alicia Keys](https://youtu.be/dsadjRYwaxY) // [Rico Nasty - Animal (Prod By. Mel-O-Dee)](https://youtu.be/bUZEaXgFYqM?si=vLCMjW3zBOO2Vxcd) // [Perfect Match · Cella Dwellas @doug-newman-nasa](https://youtu.be/5WHySdRlcUE?si=9Ds5oZPwNV7XzlU3)
+
+---
+
+
+<div class="tupperware">
+
+  <div class="item1"> <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/SARTU_BROWN_YELLA.gif" /></div>
+  <div class="item2"> <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/SARTU_BROWN_YELLA.gif" /></div>
+  <div class="item3"> <img src="https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/SARTU_BROWN_YELLA.gif" /></div>
+</div>
+
+---
+
+[Kleptomaniac Pebbles The Flintstones: Season 4, Episode 11 @BLACKGiRLSCODE](https://www.b98.tv/video/kleptomaniac-pebbles/)
+<img   alt="image" src="https://github.com/user-attachments/assets/34c3b706-4aea-4152-b9f5-b118ba1a66cf" />
+
+# Dear_Coral,
+So Sartu does the whole "Thass_MaY_HUSBiN!!" thing and they haul her off to rape again! At least everybody in the same spot so chill. The bad foster parent deal will ice out bruh. Its gonna be fun bruh
+<iframe width="100%" height="400" src="https://www.mixcloud.com/widget/iframe/?light=1&feed=%2Ffootlongdevelopment%2Fdj-rhettmatics-the-wedding-mixer-vol-25-side-a%2F" frameborder="0" ></iframe>
+Thats a dj style you should learn, because your generation is going to see more unions celebrated and thats a nice niche for a gal like you that knows what love is from growing up with a ton of women that all married a dope ass man that you know better than them! They dont even know me that good... Just explore DonalGlovah old mix tapes and search and replace name of someone I have genital contact with aand know their poor choices in sexual partners
+<hr>
+
+
+
+## BuNNY_LAKE_iS_MiSSiNG
+<iframe src="https://archive.org/embed/bunny-lake-is-missing" width="100%" height="480" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+
+## Dear Coral
+Im trying out a new theme base fo ya [mamaAuntieStepMAMAafroMexiethioMoMMyTHiNG_QUXUBE.](https://thakasartu.github.io/quxube/) It does not have the flatfiile structure the hacker-theme has that gives this blog its structure... Its got sections and each page is like a post entry instead of just editing a long HTML document. [Its still Jekyllized go check it out](https://jekyllthemes.io/theme/millennial) 
+
+![MiLLENiAL_THEME](https://jekyll-themes.imgix.net/images/themes/millennial-jekyll-theme.jpg?w=1140&h=713&fm=webp&fit=crop&crop=top)
+
+<iframe width="100%" height="450" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/269925599&color=%23547464&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 30px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; "><a href="https://soundcloud.com/tycho" title="Tycho" target="_blank" style="color: #cccccc; text-decoration: none;">Tycho</a> · <a href="https://soundcloud.com/tycho/edc-sunrise" title="EDC Sunrise 2016" target="_blank" style="color: #cccccc; text-decoration: none;">EDC Sunrise 2016</a></div>
+<hr>
+
+[Film Noir](https://www.filmnoirfoundation.org/)
+Expressionistic crime dramas of the 40s and 50s: tough cops and private eyes, femme fatales, mean city streets and deserted backroads, bags of loot and dirty double-crossers...[WatchMore](https://archive.org/details/Film_Noir)
+* [60 Free Film Noir Movies](https://www.openculture.com/free_film_noir_movies)
+* [What Exactly Is Film Noir?](https://www.nfi.edu/film-noir/)
+* [Roger Ebert A Guide to Film Noir Genre](https://www.rogerebert.com/roger-ebert/a-guide-to-film-noir-genre)
+* [Top 50 Film-Noir Movies and TV Shows##ACCORDiNG_TO_iMDB##METRiCS](https://www.imdb.com/search/title/?&genres=film_noir&explore=title_type,genres)
+
+<img src="https://www.slantmagazine.com/wp-content/uploads/2019/03/lists_100greatestnoirfilms.jpg">
+
+<hr>
+
+[Chloe Bailey Reveals What She's Looking For In Her Next Partner](https://www.youtube.com/watch?v=HfPuYiwvS1Q)
+[Chloe Bailey Heated After Troll Mentions String Showing During Her Essence Fest Performance! 😡](https://www.youtube.com/watch?v=IU9hL9qVaEs)
+
+# What your parents, siblings, peers, and admins are coping with
+## Forms_of_wartime_violence
+# Wartime Sexual Violence
+ <img src="https://16days.thepixelproject.net/wp-content/uploads/2011/11/War-rape.jpg" style="width:400px;height:600px;margin-left:15px;" align="right" alt="Pineapple" /> 
+<p>Wartime sexual violence is rape or other forms of sexual violence committed by combatants during armed conflict, war, or military occupation often as spoils of war, but sometimes, particularly in ethnic conflict, the phenomenon has broader sociological motives. Wartime sexual violence may also include gang rape and rape with objects. A war crime, it is distinguished from sexual harassment, sexual assaults and rape committed amongst troops in military service.[1][2][3]</p>
+<p>During war and armed conflict, rape is frequently used as a means of psychological warfare in order to humiliate the enemy. Wartime sexual violence may occur in a variety of situations, including institutionalized sexual slavery, wartime sexual violence associated with specific battles or massacres, as well as individual or isolated acts of sexual violence.</p>
+<p>Rape can also be recognized as genocide when committed with the intent to destroy, in whole or in part, a targeted group. International legal instruments for prosecuting perpetrators for genocide were developed in the 1990s, with the Akayesu case of the International Criminal Tribunal for Rwanda being widely considered as a precedent.[4] However, these legal instruments have so far only been used for international conflicts, thus putting the burden of proof in citing the international nature of conflict in order for prosecution to proceed.</p>
+<p>## Definition of wartime sexual violence # Main article: Rape There is no consensus definition of wartime sexual violence, as there is variance in what forms of violence are included in the definition and variance in which violence is considered conflict-related.[5] The terms rape, sexual assault and sexual violence are frequently used interchangeably.[6] The Explanatory Note of the Rome Statute, which binds the International Criminal Court, defines rape as follows: </p><p> The perpetrator invaded the body of a person by conduct resulting in penetration, however slight, of any part of the body of the victim or of the perpetrator with a sexual organ, or of the anal or genital opening of the victim with any object or any other part of the body.[7] and The invasion was committed by force, or by threat of force or coercion, such as that caused by fear of violence, duress, detention, psychological oppression or abuse of power, against such person or another person, or by taking advantage of a coercive environment, or the invasion was committed against a person incapable of giving genuine consent.[7] </p><p>The concept of "invasion" is intended to be broad enough to be gender-neutral and the definition is understood to include situations where the victim may be incapable of giving genuine consent if affected by natural, induced or age-related incapacity.[8] A prominent data-set on conflict-related sexual violence, Sexual Violence in Armed Conflict (SVAC), builds on the ICC definition and covers seven forms of violence: "(a) rape, (b) sexual slavery, (c) forced prostitution, (d) forced pregnancy, (e) forced sterilization/abortion, (f) sexual mutilation, and (g) sexual torture."[5] The data-set defines conflict-related sexual violence as the sexual violence committed "armed actors (specifically, state militaries, rebel groups, and progovernment militias) during periods of conflict or immediately postconflict," thus excluding sexual violence by civilians.[5] More expansive definitions may define wartime sexual violence as being committed even by civilians if the conflict creates a sense of impunity.[5]</p>
+
+<hr>
+<hr>
+
+## Dear_Coral
+`OLD` @nasa-jpl its a story a little girl broadcasted when I was sleeping at central library straight into my head, The Rihanna painting was some copy and paste code from a demo I did for [Ella MAi](https://www.instagram.com/ellamai/?hl=en) . . . I never finished the theme but its a kit to accompany her [classroom dojo](https://github.com/class-dojo) or whatever she using tasks at school @CityOfLosAngeles MAYOR KEAREN BASS / / DFCS SUPERViSOR HOLLY J AMiTCHELL @ForAtlanta 
+Your sister Cynthia was concieved near one of these according to her mother. [SCAD's Jen Library](https://scad.libguides.com/c.php?g=164802&p=1081661) Was nothing Like [Cental in Loss_Angeles](https://www.cbsnews.com/losangeles/news/adult-film-shot-at-santa-monica-public-library-during-business-hours-sparks-outrage/), They had dope computers for everyone not just students. They had to close it to the public due to prostituition according to what I heard from a former scad professor, he work somewhere else now... Los Angeles has a rep for sexual perversion so we out here... Just code on codepen... Please dont lose your life discording and darkwebbing IDK what MATT and KENNiE and MASHONGA did with Erika... LATTOH... you dont even get the humor, but check it the population is flipping and Im sure we will cross paths again soon [Learn Arabic With Toofa + Zaky Songs](https://youtu.be/CAkg_9Wp8wk) // [_One4kids_ youtube.com/@One4kids-Zaky](https://www.youtube.com/@One4kids-Zaky)
+<a href="https://youtu.be/J8YtRNuhp3M"><IMG src="https://cdn.britannica.com/89/23889-004-9BE09A6D/Apple-manufacturing-plant-iMac.jpg?s=1500x700&q=85"></a>
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A294231048&color=%23009fff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/bonobo" title="bonobo" target="_blank" style="color: #cccccc; text-decoration: none;">bonobo</a> · <a href="https://soundcloud.com/bonobo/outlier003-nts" title="OUTLIER Radio 003 on NTS" target="_blank" style="color: #cccccc; text-decoration: none;">OUTLIER Radio 003 on NTS</a></div>
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A666422090&color=%23009fff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/chemicalxclub" title="Chemical X Club" target="_blank" style="color: #cccccc; text-decoration: none;">Chemical X Club</a> · <a href="https://soundcloud.com/chemicalxclub/high-tide-prod-acemo-eartheater" title="Eartheater - High Tide (prod. Acemo, Eartheater)" target="_blank" style="color: #cccccc; text-decoration: none;">Eartheater - High Tide (prod. Acemo, Eartheater)</a></div>
+
+
+<img alt="image" src="https://github.com/user-attachments/assets/bbbc8644-a70b-4bc3-bc43-775218813fb1" />
+Name: Rashard I Kelly
+Username: rashardkelly
+Email Address: holetoanotheruniverse40@gmail.com
+Organization: Mars Reconnocinse Orbiter #NasaJPL #La_CanaDa_FlintRidge Los Angeles County California
+Country: United States
+Member Since: 08-24-2024
+Last Authentication: 09-11-2026
+Federated User: False
+Application Creator: False
+User Type: Science Team
+Study Area: Atmospheric Aerosols
+Affiliation: Government
+Allow Email Notifications from Applications: True
+Agreed To Meris EULA: True
+Agreed To Sentinel-3 EULA: True
+Protection and maintenance of user profile information is described in NASA's Web Privacy Policy
+
+For questions regarding the @EOSDIS-NASA Earthdata Login, please contact Earthdata Support
+
+
+V 4.231.25 Home NASA Accessibility
+NASA Official: Doug Newman @doug-newman-nasa @la-county-isd @blackgirlscode @cityoflosangeles @foratlanta @stateofcalifornia @howard-university-web-services @Jdwalli @hu-open-sci I'm mentioning Howard web resources because that's how [@nasa-jpl @nasa-pds latrice told me to communicate to protect virtiserv](https://www.instagram.com/reel/CeOTCPnl1SF/) and she can be my bookkeeper and everything will workout especially fixing my relationship with [coral  @blackgirlscode @foratlanta](https://thakarashard.github.io/coral/) 
+![https://assets.science.nasa.gov/content/dam/science/esd/eo/images/imagerecords/147000/147806/atlanta_oli_2020127_lrg.jpg](https://assets.science.nasa.gov/content/dam/science/esd/eo/images/imagerecords/147000/147806/atlanta_oli_2020127_lrg.jpg)
+
+
+## _`OLD`_ Why Trump’s "4th Term" Speech Has Everyone Talking
+[WATCH - @nasa-jpl @nasa-giss youtu.be/U3boTwZAxtg?si=AhBzpDvlNZwEXyCr](https://youtu.be/U3boTwZAxtg?si=AhBzpDvlNZwEXyCr)
+ @eodis-nasa / @nasa-pds @usgs @NASA-JPL @STATEOFCALiFORNiA @FORATLANTA 
+hi @BLACKGiRLSCODE share this with your parents for perspective idk who might be scared of me bc of my job [`WATCH` - Thanks to President Trump, America will DOMINATE SPACE for generations to come.](https://youtu.be/hhg95p5dzoU) @NASA [The Lady In The Bottle  I Dream Of Jeannie s1e1](https://www.youtube.com/watch?v=F41Y37XTZck) @ASU @ESA [@DHS-GOV @NASA @DEPTofWAR _Hon-Pete_](https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/) @deptofwar
+<img alt="image" src="https://github.com/user-attachments/assets/85e848af-89c9-499f-93fe-26792bdb7474" />
+
+@blackgirlscode is someon numerology oriented hacking ? 
+```
+Job is about to start running on the hosted runner: GitHub Actions 1000002913
+Requested labels: ubuntu-latest
+Job defined at: /dynamic/pages/pages-build-deployment@refs/heads/master
+Waiting for a runner to pick up this job...
+Evaluating build.if
+Evaluating: success()
+Result: true
+Job is waiting for a hosted runner to come online.
+Requested labels: ubuntu-latest
+Job defined at: /dynamic/pages/pages-build-deployment@refs/heads/master
+Waiting for a runner to pick up this job...2026-08-06T20:20:31.2270000Z Evaluating build.if
+Evaluating: success()
+Result: true
+Job is waiting for a hosted runner to come online.
+Job is about to start running on the hosted runner: GitHub Actions 1000002916
+Requested labels: ubuntu-latest
+Job defined at: /dynamic/pages/pages-build-deployment@refs/heads/master
+Waiting for a runner to pick up this job...
+```
+
+pages build and deployment #999 hung sesh [https://github.com/virtiserv/virtiserv.github.io/actions/runs/31127423085/job/92703989170 @github @nasa-jpl ](https://github.com/virtiserv/virtiserv.github.io/actions/runs/31127423085/job/92703989170)
+<img   alt="image" src="https://github.com/user-attachments/assets/1632a6b8-d375-4915-9957-880e1102f557" />
+<img   alt="image" src="https://github.com/user-attachments/assets/51da98ad-c1e8-49a4-a2f9-c36d3db4e177" />
+
+
+
+
+ ### Thanks to President Trump, America will DOMINATE SPACE for generations to come. [`WATCH` - Thanks to President Trump, America will DOMINATE SPACE for generations to come.](https://youtu.be/hhg95p5dzoU)
+@deptoFWAR @Nasa : [Officer iSSACMAN](https://www.nasa.gov/people/jared-isaacman/), Hi its [rashard _ MRO](https://ra5hard.github.io/) from [@NAsa-JPL](https://earth.jpl.nasa.gov/emit/), Im concerned with [hon-Pete](https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/)'s language Dominate, what about our partners? I want to perform helthily with @UKSpaceAgency @jaxa @isro i forgot who else but since @CityOfLosAngeles is a melting pot you guys have to be aware to explain context so we dont get competative with eachother @whitehouse please provide scope to Dominate and how that language should effect my daily work @eodis-nasa / @nasa-pds @usgs @NASA-JPL @STATEOFCALiFORNiA @FORATLANTA 
+hi @BLACKGiRLSCODE share this with your parents for perspective idk who might be scared of me bc of my job [`WATCH` - Thanks to President Trump, America will DOMINATE SPACE for generations to come.](https://youtu.be/hhg95p5dzoU) @NASA [The Lady In The Bottle  I Dream Of Jeannie s1e1](https://www.youtube.com/watch?v=F41Y37XTZck) @ASU @ESA [@DHS-GOV @NASA @DEPTofWAR _Hon-Pete_](https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/) @deptofwar [aanandmadhav.com/work/emirates-mars-mission](https://aanandmadhav.com/work/emirates-mars-mission)
+@nasa-pds [marssim.space/](https://marssim.space/) // @Whitehouse im looking for the @Github but this is one @nasa-jpl sponsored that was in my monitoring tOOLkit when i got back to california [pmc.ncbi.nlm.nih.gov/articles/PMC8830993/pdf/11214_2021_Article_868.pdf @deptofwar ](https://pmc.ncbi.nlm.nih.gov/articles/PMC8830993/pdf/11214_2021_Article_868.pdf)  //// [https://lasp.colorado.edu/missions/emm-hope/](https://lasp.colorado.edu/missions/emm-hope/) @lasp @LowellObservatory 
+
+
+![https://lasp.colorado.edu/wp-content/uploads/2021/02/cu-lasp.reverse.svg](https://lasp.colorado.edu/wp-content/uploads/2021/02/cu-lasp.reverse.svg)
+<img   alt="image" src="https://github.com/user-attachments/assets/c5d73dd6-44bf-49fc-8a2d-09d3efd82883" />
+
+
+<img   alt="image" src="https://github.com/user-attachments/assets/45dd7885-b020-4bcc-ba27-d29c192f9e65" />
+
+# 🕋 Makkah Live
+@nasas-jpl @cityoflosangeles hi [`Watch` - youtu.be/YSBijY6W4yY](https://youtu.be/YSBijY6W4yY)
+kaselassie_kelly#1: ​@lanajharris , imma watch your show some at 4 i hope thats enough @howard-university-web-services 
+<img alt="image" src="https://github.com/user-attachments/assets/749f569a-4cff-4edf-89db-56a01c451455" />
+
+
+
+[The Lady In The Bottle  I Dream Of Jeannie s1e1](https://www.youtube.com/watch?v=F41Y37XTZck)
+
+
+# 🕋 Makkah Live
+@nasas-jpl @cityoflosangeles hi [`Watch` - youtu.be/YSBijY6W4yY](https://youtu.be/YSBijY6W4yY)
+
+<img alt="image" src="https://github.com/user-attachments/assets/50e69fb9-3b80-4c84-8755-b239ef5dd6f1" />
+
+<img alt="image" src="https://github.com/user-attachments/assets/2e58b2d6-90d0-40a2-a4e1-79603dca4bcf" />
+
+# Aria
+@caltech this is what i was trying to do for the flood . . this is old @emit-sds
+![ @nasa-jpl @caltech this is what i was trying to do for the flood . . this is old](https://ia801409.us.archive.org/14/items/nsn-overview-noaccess_NASAJPL_rashardsJob/ARIA_S~2.GIF)
+
+
+![https://aria.caltech.edu/images/logos/aria-logo.png](https://aria.caltech.edu/images/logos/aria-logo.png) 
+
+# The Lana Rundown
+@Whitehouse @dhs-gov @commercegov @FBiCYBER @NASA  @NASA-GiSS @NASA-jpl
+Trump’s $5,000 Check Promise, Iran War Update & RNC Drama 
+[`WATCH` - youtu.be/Kis7DAHwGRk?si=GO3cBgBpiXvvVlRa](https://youtu.be/Kis7DAHwGRk?si=GO3cBgBpiXvvVlRa)
+<img  alt="image" src="https://github.com/user-attachments/assets/37a90429-a01f-4361-ab4c-0e3c8e54fc03" />
+@DEPTOFWAR @HOT(& @NASAJPL pass to @LANAJHARRiS youtu.be/RyZJljseZ_M @HOT97 pass this to @Lanajharris its about elon it will clear personality misomers up and improve her reports @REPKARENBASS can u file that as factchecking  @nasajpl @nasa-pds @USGS - RASHARD NASA meatball logo EARTHDATA LOGIN youtu.be/RyZJljseZ_M Profile Information
+Name: Rashard I Kelly
+Username: rashardkelly
+Email Address: holetoanotheruniverse40@gmail.com
+Organization: Mars Reconnocinse Orbiter #NasaJPL #La_CanaDa_FlintRidge Los Angeles County California
+Country: United States
+Member Since: 08-24-2024
+Last Authentication: 09-11-2026
+Federated User: False
+Application Creator: False
+User Type: Science Team
+Study Area: Atmospheric Aerosols
+Affiliation: Government
+Allow Email Notifications from Applications: True
+Agreed To Meris EULA: True
+Agreed To Sentinel-3 EULA: True
+Protection and maintenance of user profile information is described in NASA's Web Privacy Policy
+
+For questions regarding the EOSDIS Earthdata Login, please contact Earthdata Support
+
+
+V 4.231.25 Home NASA Accessibility
+NASA Official: Doug Newman
+
+Feedback @SupervisorHollyJMitchell @riconasty  @RubiRoseVEVO  @HezakyaNewz
+
+<img alt="image" src="https://github.com/user-attachments/assets/13dd7689-0737-4980-9868-bc383d43d29b" />
+
+# ARIA Sentinel-1 Geocoded Unwrapped Interferograms
+@ASFOpenSARlab @asfadmin @nasa-jpl
+I dont know how well i am reading inferograms but  i know it needs to be in the @la-county-isd datapool for storm damage recovery. The Scans of Losangeles County stop in [2025 @asfadmin](https://search.asf.alaska.edu/#/?dataset=SENTINEL-1%20INTERFEROGRAM%20(BETA)&resultsLoaded=true&granule=S1-GUNW-D-R-144-tops-20250725_20250707-140104-00121W_00033N-PP-23ef-v3_0_1&zoom=8.800&center=-118.816,33.840&searchType=Geographic%20Search&useFrameForBaseline=true&polygon=POLYGON((-118.5101%2033.7067,-117.7373%2033.7067,-117.7373%2034.1998,-118.5101%2034.1998,-118.5101%2033.7067))) . @ESA this article says that its _"Time to say goodbye to Sentinel-1A"_ - [READ](https://www.esa.int/Applications/Observing_the_Earth/Copernicus/Sentinel-1/Time_to_say_goodbye_to_Sentinel-1A) so if the dataset was decommed for Sentinel1 im looking for it under @isro / @nasa 's [NiSar](https://bhoonidhi.nrsc.gov.in/NISAR/) but thats another session or a jupyter notebook. Im still learning to use [Nisar](https://science.nasa.gov/mission/nisar/) - [Rashard @nasa-pds](https://github.com/ra5hard/ra5hard.github.io) @doug-newman-nasa im just overwhelmed, ppl want data but its kind of hard with the computer / netaccess situation @CityOfLosANGELEs @la-county-isd @LAcountyDPH
+`Interferometry is an imaging technique in which waves are superimposed in a manner to cause interference.` - [READMORE](https://science.nasa.gov/mission/nisar/interferometry/)
+[earthdata.nasa.gov/data/catalog/alaska-satellite-facility-distributed-active-archive-center-aria-s1-gunw-version-1](https://www.earthdata.nasa.gov/data/catalog/alaska-satellite-facility-distributed-active-archive-center-aria-s1-gunw-version-1) //// [aria.caltech.edu/products/aria-s1-gunw](https://aria.caltech.edu/products/aria-s1-gunw)
+
+![https://www.esa.int/var/esa/storage/images/esa_multimedia/images/2024/11/sentinel-1_animated_patch/26417500-1-eng-GB/Sentinel-1_animated_patch_pillars.gif](https://www.esa.int/var/esa/storage/images/esa_multimedia/images/2024/11/sentinel-1_animated_patch/26417500-1-eng-GB/Sentinel-1_animated_patch_pillars.gif) 
+
+<img   alt="image" src="https://github.com/user-attachments/assets/36dcaa48-1aa5-43ee-bf95-dd14a6240d6f" />
+
+[YES - Owner of a Lonely Heart](https://youtu.be/SVOuYquXuuc?si=3mbyOuUwtB2Nowvs)
+`@NASAJPL @ESA fwd to @LANAJHARRiS esa.int/var/esa/storage/images/esa_multimedia/images/2024/06/sentinel-1_patch/26187920-1-eng-GB/Sentinel-1_patch_pillars.png @repkarenbass she and her posse helped move a lot of sentinel data during the fire, idk what decom means this far away from earth but some datasets are not updating and they siad it was going away esa.int/Applications/Observing_the_Earth/Copernicus/Sentinel-1/Time_to_say_goodbye_to_Sentinel-1A @DEPTOFWAR @WHiTEHOUSE @HOWARDUNiVERSiTY`
+<img  alt="image" src="https://github.com/user-attachments/assets/50abf1a2-3ad3-4244-915d-ff3148daaae5" />
+
+<img   alt="image @eodis-nasa the data stops 2025 @asfadmin" src="https://github.com/user-attachments/assets/6fcb9d48-e37b-4199-a4c3-4141ca17cf96" />
+
+_@stateOFCalifornia Earthquake_ 
+![https://aria.caltech.edu/images/products/ridgecrest_2019_browse_gunw.png](https://aria.caltech.edu/images/products/ridgecrest_2019_browse_gunw.png)
+<img   alt="image" src="https://github.com/user-attachments/assets/8a606300-a576-4c02-bbf9-688453c3936c" />
+
+![https://earthdata.nasa.gov/s3fs-public/styles/hds_large/public/2025-12/esds-org-chart_0.png?VersionId=ZcE7OzMfjpzI5JDgzxTxPGuCvJEON.k4&itok=7NTqQqz-](https://earthdata.nasa.gov/s3fs-public/styles/hds_large/public/2025-12/esds-org-chart_0.png?VersionId=ZcE7OzMfjpzI5JDgzxTxPGuCvJEON.k4&itok=7NTqQqz-)
+
+![https://aria.caltech.edu/images/logos/aria-logo.png](https://aria.caltech.edu/images/logos/aria-logo.png) 
+
+![https://www.esa.int/eologos/images/sentinel-1_neg.jpg](https://www.esa.int/eologos/images/sentinel-1_neg.jpg)
+![https://www.esa.int/var/esa/storage/images/esa_multimedia/images/2024/06/sentinel-1_patch/26187920-1-eng-GB/Sentinel-1_patch_pillars.png](https://www.esa.int/var/esa/storage/images/esa_multimedia/images/2024/06/sentinel-1_patch/26187920-1-eng-GB/Sentinel-1_patch_pillars.png) 
+
+<img  alt="image" src="https://github.com/user-attachments/assets/6e61597d-add5-470e-ba24-8a6bb8635a0f" />
+
+
+# DOD INSTRUCTION 2200.01 @DeptOfDefense @whitehouse @dhs-gov
+COMBATING TRAFFICKING IN PERSONS (CTIP)
+#### [@nasa-jpl this is the @DeptOfWar](https://www.esd.whs.mil/Portals/54/Documents/DD/issuances/dodi/220001p.pdf?ver=2019-06-21-102951-257) stance on sex trafficking, 
+[ @cityoflosangeles @stateofcalifornia @blackgirlscode esd.whs.mil/Portals/54/Documents/DD/issuances/dodi/220001p.pdf](https://www.esd.whs.mil/Portals/54/Documents/DD/issuances/dodi/220001p.pdf)
+1.2. POLICY. It is DoD policy to:
+a. Oppose prostitution, forced labor, and any related activities contributing to the
+phenomenon of trafficking in persons (TIP). CTIP will be applied across the entire spectrum of
+DoD missions, functions, programs, and activities.
+b. Deter activities of Service members, civilian employees, indirect hires, DoD contractors,
+foreign national employees of DoD, grant and cooperative agreement recipients, and all
+dependents that could facilitate or support TIP, domestically and overseas. These activities, to
+which DoD Components will uniformly refer using these terms when issuing internal
+implementing instructions and regulations, are:
+(1) Prostitution, pimping, pandering, and patronizing a prostitute. Even though such
+activities may be legal in a host country, they are in violation of:
+(a) Chapter 47 of Title 10, United States Code (U.S.C.), also known and referred to
+in this issuance as the “Uniform Code of Military Justice.”
+(b) Paragraph 106 of Part IV of the Manual for Courts-Martial.
+(2) Activities in violation of Chapter 77 of Title 18, U.S.C. including:
+(a) Forced labor and involuntary servitude.
+(b) Document tampering (e.g., withholding passports, fraudulent visas).
+(c) Sex trafficking of children.
+(3) Sex trafficking by force, fraud, or coercion in violation of Chapter 117 of Title 18,
+U.S.C.
+(4) Additional TIP-related offenses in Sections 1581, 1584, 1590-1597, 2421, 2421A,
+and 2422 of Title 18, U.S.C. 
+[esd.whs.mil/Portals/54/Documents/DD/issuances/dodi/220001p.pdf](https://www.esd.whs.mil/Portals/54/Documents/DD/issuances/dodi/220001p.pdf)
+<img alt="image" src="https://github.com/user-attachments/assets/a889a2eb-f963-4ffa-a8c8-57e06953a4c7" />
+
+## @nasa-jpl heres a news clip @Deptofwar
+Thanks to President Trump, America will DOMINATE SPACE for generations to come.
+[`WATCH` - youtu.be/hhg95p5dzoU?si=vr3AT3hUvDL5BiPu](https://youtu.be/hhg95p5dzoU?si=vr3AT3hUvDL5BiPu) /// @Deptofwar pete im so sorry im on a physical cycle with a girl in the pornography world and she chose a new partner and im just trying to get verified , theres other pretty girls @blackgirlscode have normani make any splits communicated with the small business dept at @nasa-jpl , @disney im afraid to stop chloe flow bc theres 5 latrices im binded to and i dont what her accused of castration if they get me , striptease and prostitution was neglected @ForAtlanta to remain a pissing hole and genocide watering hole @Stateofcalifornia 
+<img alt="image" src="https://github.com/user-attachments/assets/df6e26b7-3cf2-4952-8041-44f5e7eba1b0" />
+
+### Los Angeles : the enormous village 1781-1981
+@CityOfLosAngeles @nasa-jpl @nasa @nasa-pds @LACMTA : the enormous village 1781-1981 [READ](https://archive.org/details/losangelesenormo0000weav/mode/1up)
+<img   alt="image" src="https://github.com/user-attachments/assets/216ff54d-e41b-410d-8da0-8b371f3fd985" />
+
+## Hurricane MArie
+[https://worldview.earthdata.nasa.gov/?v=-136.99937294724108,16.20073452649428,-104.69159728436418,37.79256479623875&z=4&ics=true&ici=5&icd=10&l=Reference_Labels_15m(hidden),DoS_International_Boundaries(hidden),Coastlines_15m(hidden),GOES-West_ABI_Air_Mass(hidden),GOES-West_ABI_Band13_Clean_Infrared(hidden),GOES-West_ABI_Band2_Red_Visible_1km(opacity=0.56),GOES-West_ABI_GeoColor(hidden),OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor(hidden),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&t=2026-09-06-T17%3A03%3A59Z](https://worldview.earthdata.nasa.gov/?v=-136.99937294724108,16.20073452649428,-104.69159728436418,37.79256479623875&z=4&ics=true&ici=5&icd=10&l=Reference_Labels_15m(hidden),DoS_International_Boundaries(hidden),Coastlines_15m(hidden),GOES-West_ABI_Air_Mass(hidden),GOES-West_ABI_Band13_Clean_Infrared(hidden),GOES-West_ABI_Band2_Red_Visible_1km(opacity=0.56),GOES-West_ABI_GeoColor(hidden),OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor(hidden),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&t=2026-09-06-T17%3A03%3A59Z)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/fb5b97af-816c-4977-889a-d528191b93fa" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/0ec5b46b-e6bf-4b4f-96fb-625e1a7a0c0e" />
+
+[@CityOfLOSANGELES worldview.earthdata.nasa.gov/?v=-135.1249151580117,18.33740940959113,-104.67635113599653,38.68669724608642&z=4&ics=true&ici=5&icd=10&l=Reference_Labels_15m,DoS_International_Boundaries(hidden),Coastlines_15m,GOES-West_ABI_Air_Mass(hidden),GOES-West_ABI_Band13_Clean_Infrared,GOES-West_ABI_Band2_Red_Visible_1km,GOES-West_ABI_GeoColor,OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor(hidden),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&t=2026-09-06-T17%3A03%3A59Z](https://worldview.earthdata.nasa.gov/?v=-135.1249151580117,18.33740940959113,-104.67635113599653,38.68669724608642&z=4&ics=true&ici=5&icd=10&l=Reference_Labels_15m,DoS_International_Boundaries(hidden),Coastlines_15m,GOES-West_ABI_Air_Mass(hidden),GOES-West_ABI_Band13_Clean_Infrared,GOES-West_ABI_Band2_Red_Visible_1km,GOES-West_ABI_GeoColor,OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor(hidden),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&t=2026-09-06-T17%3A03%3A59Z)
+<img  alt="image" src="https://github.com/user-attachments/assets/e98dff82-6dbb-4a9b-a8b5-a450a8123873" />
+
+[worldview.earthdata.nasa.gov/?v=-131.6737056280827,19.96643058507049,-109.2496069160361,34.95283318965609&z=4&ics=true&ici=5&icd=10&l=Reference_Labels_15m,DoS_International_Boundaries(hidden),Coastlines_15m,GOES-West_ABI_Air_Mass,GOES-West_ABI_Band13_Clean_Infrared,GOES-West_ABI_Band2_Red_Visible_1km,GOES-West_ABI_GeoColor,OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor(hidden),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&t=2026-09-06-T17%3A03%3A59Z](https://worldview.earthdata.nasa.gov/?v=-131.6737056280827,19.96643058507049,-109.2496069160361,34.95283318965609&z=4&ics=true&ici=5&icd=10&l=Reference_Labels_15m,DoS_International_Boundaries(hidden),Coastlines_15m,GOES-West_ABI_Air_Mass,GOES-West_ABI_Band13_Clean_Infrared,GOES-West_ABI_Band2_Red_Visible_1km,GOES-West_ABI_GeoColor,OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor(hidden),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&t=2026-09-06-T17%3A03%3A59Z)
+<img  alt="image" src="https://github.com/user-attachments/assets/789b756d-7d42-400b-9036-07434506e026" />
+Profile Information
+Name: Rashard I Kelly
+Username: rashardkelly
+Email Address: holetoanotheruniverse40@gmail.com
+Organization: Mars Reconnocinse Orbiter #NasaJPL #La_CanaDa_FlintRidge Los Angeles County California
+Country: United States
+Member Since: 08-24-2024
+Last Authentication: 09-10-2026
+Federated User: False
+Application Creator: False
+User Type: Science Team
+Study Area: Atmospheric Aerosols
+Affiliation: Government
+Allow Email Notifications from Applications: True
+Agreed To Meris EULA: True
+Agreed To Sentinel-3 EULA: True
+Protection and maintenance of user profile information is described in NASA's Web Privacy Policy
+
+For questions regarding the EOSDIS Earthdata Login, please contact Earthdata Support
+
+
+V 4.231.25 Home NASA Accessibility
+NASA Official: Doug Newman 
+@nasa-pds contact Dwayne gooden for a report on my behavior in Atlanta @marinecoders @doug-newman-nasa @DEPTofWAR @BLACKGiRLSCODE @DiSNEY @NETFLiX 
+[@nasa-jpl](https://ammos.nasa.gov/openmct/) is this where I'm supposed to build my Rover commands and a runner on @Github is enough or a jupyter notebook ? hi  @blackgirlscode
+![https://ammos.nasa.gov/media/openmct1.png](https://ammos.nasa.gov/media/openmct1.png)
+
+## VISIONS: The EMIT Open Data Portal
+[@CityOfLosAngeles _Mayor Karen Bass_earth.jpl.nasa.gov/emit/data/data-portal/Greenhouse-Gases](https://earth.jpl.nasa.gov/emit-mmgis/?s=0ibfl)
+try the map [@deptofwar she may need extra help today @nasa-jpl](https://earth.jpl.nasa.gov/emit-mmgis/?s=0ibfl) 
+<img  alt="image" src="https://github.com/user-attachments/assets/c69c80d0-1a93-4bda-a80c-cbfbd272ad9b" />
+
+
+@emit-sds we are not in [worldview](https://www.earthdata.nasa.gov/data/tools/worldview) there's a lot of weather data sets that can be bundled that don't require any tile stitching, like this [methane-map](https://earth.jpl.nasa.gov/emit/data/data-portal/Greenhouse-Gases/) @USGS 
+[\Worldview.earthdata.nasa.gov/?v=-74.46038955679316,-93.44742158783762,185.5169641056584,80.29981972122653&l=Reference_Labels_15m(hidden),DoS_International_Boundaries(hidden),Coastlines_15m,GRUMP_Settlements,GRanD_Reservoirs,GRanD_Dams,AIRS_L3_Methane_400hPa_Volume_Mixing_Ratio_Monthly_Day,AIRS_L3_Methane_400hPa_Volume_Mixing_Ratio_Daily_Night,AIRS_L3_Methane_400hPa_Volume_Mixing_Ratio_Daily_Day,AIRS_L2_Methane_400hPa_Volume_Mixing_Ratio_Night,AIRS_L2_Methane_400hPa_Volume_Mixing_Ratio_Day,OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor,VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor(hidden)&lg=true&t=2026-09-03-T16%3A43%3A30Z](https://worldview.earthdata.nasa.gov/?v=-74.46038955679316,-93.44742158783762,185.5169641056584,80.29981972122653&l=Reference_Labels_15m(hidden),DoS_International_Boundaries(hidden),Coastlines_15m,GRUMP_Settlements,GRanD_Reservoirs,GRanD_Dams,AIRS_L3_Methane_400hPa_Volume_Mixing_Ratio_Monthly_Day,AIRS_L3_Methane_400hPa_Volume_Mixing_Ratio_Daily_Night,AIRS_L3_Methane_400hPa_Volume_Mixing_Ratio_Daily_Day,AIRS_L2_Methane_400hPa_Volume_Mixing_Ratio_Night,AIRS_L2_Methane_400hPa_Volume_Mixing_Ratio_Day,OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor,VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor(hidden)&lg=true&t=2026-09-03-T16%3A43%3A30Z)
+<img   alt="image" src="https://github.com/user-attachments/assets/a1694b0e-aac8-40ff-a6a3-964d881a7a01" />
+
+. . . [@nasa-jpl](https://www.jpl.nasa.gov/) [@doug-newman-nasa](https://www.linkedin.com/in/doug-newman-682037390) [@CityOfLosAngeles](https://cd11.lacity.gov/about/traci-park) ... morning [Mayor Bass](https://www.congress.gov/member/karen-bass/B001270) @StateOfCalifornia
+<img alt="image" src="https://github.com/user-attachments/assets/4c9f6155-58c6-4c58-b469-125190fe30da" />
+
+
+![ @cityoflosangeles Council Woman park I'm leaving my notes for you and Ms Bass + others @Nasa-pds  cd11.lacity.gov/sites/g/files/wph2151/files/CD11_Logo_Traci-Park_370x100.svg](https://cd11.lacity.gov/sites/g/files/wph2151/files/CD11_Logo_Traci-Park_370x100.svg)
+@doug-newman-nasa @cityoflosangeles @nasa-jpl @nasa-pds @usgs @la-county-isd
+someone is mad at me in this building!!!!!!!~ it was [here](https://search.earthdata.nasa.gov/search?sp[0]=-118.25237%2C34.05183&lat=34.05163842667505&long=-118.25236134250899&overlays=placeLabels&zoom=19.377160463443715) not [there](https://search.earthdata.nasa.gov/search?sp[0]=-118.25114%2C34.05316&lat=34.0533931441099&long=-118.25090889142115&overlays=placeLabels&zoom=19.095570501164147)
+<img alt="image" src="https://github.com/user-attachments/assets/d6375519-8983-4855-bc9f-cb8e076c0404" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/6b57306b-6dd0-4f66-a63a-7ad696c0d344" />
+
+### EMIT L2B Estimated Carbon Dioxide Plume Complexes 60 m V002
+[`READ` - earthdata.nasa.gov/data/catalog/lpcloud-emitl2bco2plm-002](https://www.earthdata.nasa.gov/data/catalog/lpcloud-emitl2bco2plm-002)
+@emit-sds is  this dataset in [worldview](https://www.earthdata.nasa.gov/data/tools/worldview) ? . . . [@nasa-jpl](https://www.jpl.nasa.gov/) [@doug-newman-nasa](https://www.linkedin.com/in/doug-newman-682037390) I saw an accident in front of [wells Fargo center](https://search.earthdata.nasa.gov/search?sp[0]=-118.25114%2C34.05316&lat=34.0533931441099&long=-118.25090889142115&overlays=placeLabels&zoom=19.095570501164147) last night...  [@CityOfLosangeles](https://lacity.gov/) [@LA-County-iSD](https://isd.lacounty.gov/) [@LAcountyDPH](https://www.publichealth.lacounty.gov/) please protect me from scary municipal employees  that would be interested in disabling cartography, this map been hacked [@nasa-develop](https://commonresearchmodel.larc.nasa.gov/langley-research-center/)  [@nasa-giss](https://www.nasa.gov/goddard/) y'all better [check on us](https://github.com/nasa/earthdata-search) @USGS ...  @howard-university-web-services @emergincoders account  for each other [@whitehouse](https://www.whitehouse.gov/) [@DEPTofWAR](https://www.war.gov/)  .... @Nasa-pds is black lady roman ok, her cousin presented herself to me Pershing Station with pink braids after I made a vulgar comment @dhs-gov @NASA so I hope she was not in the black sedan  that went over, it was barely patched filled with wood . . . unnecessary @USATODAY @NEWSHOUR the engine caught fire and from my view there were no signs of life! but I did not go down Supervisor Mitchell @StateOfCAlifornia @FORATLANTA
+<img alt="image" src="https://github.com/user-attachments/assets/b91a8812-9012-49c2-90a0-2188c7745e52" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/e80e1499-8dea-40de-9bf1-03f12a7e2270" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/640349fd-0242-4401-ba76-e4ba41af8092" />
+
+
+[CoLD SToRAGE - Messij](https://youtu.be/4uQnXvRndcE) // [LateNightTales - Bonobo](https://youtu.be/leeFJHgCRlw?si=rrStsO_T4_uv1uZA) // [The Chemical Brothers - We've Got To Try](https://youtu.be/mRfSM-lv55I) // [T.N.T. · AC/DC](https://youtu.be/NhsK5WExrnE) // [Houses of the Holy  · Led Zeppelin](https://youtu.be/k77oT3jQ23g?si=vn0F4Lh1vGOIVbvu) // [Journey - Wheel in the Sky](https://youtu.be/MxGEVIvSFeY) // [REO Speedwagon - Keep on Loving You](https://youtu.be/wJzNZ1c5C9c?si=KeZAIeI3W3KKFALh) // [YES - Owner of a Lonely Heart](https://youtu.be/SVOuYquXuuc?si=3mbyOuUwtB2Nowvs) // [The Clash - Rock the Casbah](https://youtu.be/bJ9r8LMU9bQ?si=Csoqq7yLa4DT5LfM) // [Heart - "Barracuda"](https://youtu.be/PeMvMNpvB5M) // [Dire Straits - Money For Nothing](https://youtu.be/wTP2RUD_cL0) // [The Fact Is (I Need You)](https://youtu.be/4YnnIsdSwic?si=PNZL2QVwxm2LRMKM) // [Xscape - Who Can I Run To ](https://youtu.be/xLjyPBQk_Os) // [Xscape - Understanding ](https://youtu.be/HR5J5jUDcnA) // [Monica - Before You Walk Out Of My Life](https://youtu.be/Ptiz0KtR16E) // [Brandy - Sittin' Up in My Room](https://youtu.be/yge2PqEZZJo) // [Gang Starr - Mass Appeal](https://youtu.be/y9lNbNGbo24) // [Black Sheep - Flavor Of The Month](https://youtu.be/F01fzPwBwc4) // [Black Sheep - The Choice Is Yours](https://youtu.be/K9F5xcpjDMU) // [Method Man - All I Need (Razor Sharp Remix) ft. Mary J. Blige](https://youtu.be/XW1HNWqdVbk?si=65oMB-2_q6Nw_fFK) // [Common - Come Close](https://youtu.be/dbbRrNHJ4Lg) // ["The One" by Tokyo Jetz.](https://youtu.be/dMONFTXuMhA) // [LightSkinKeisha - "On Read" FEAT. Kash Doll ](https://youtu.be/E5RY0GUFNrs) // [MEGAN THEE STALLION - _
+_STALLI FREESTYLE_ ](https://youtu.be/gvSD05Yu7Ig) // [All-Women Cypher Featuring Latto, Flo Milli, Monaleo, Maiya The Don and Mello Buckzz](https://youtu.be/fIs7Cv1JQdM) // [#MeganMonday: I Think I love Her Freestyle](https://youtu.be/t6sHHHU82aQ?si=hugqBDchccffHYol) // [Rico Nasty - PEPPER](https://youtu.be/hpeXv2BbvpY) // [Jill Scott - Norf Side](https://youtu.be/rRCxe0og5Js) // [DJ Khaled - I Got the Keys](https://youtu.be/SFLSOIufuhM) // [Drake - Worst Behavior](https://youtu.be/U5pzmGX8Ztg) // [Nicki Minaj - Moment 4 Life](https://youtu.be/Ks3_kuRAzHs) // [T.i feat quavo : baller alert](https://youtu.be/31e7ObLfqsk?si=5h_2wP8ZKpKjnyUn) // [Quavo Feat. Yung Miami - Strub Tha Ground](https://youtu.be/BL0jEPZ8QUo) // [Diddy - Gotta Move On (ft. Bryson Tiller, Yung Miami, Ashanti)](https://youtu.be/bjW1WfRAk18) // [CRAZE -- NEW SLAVES ROUTINE](https://youtu.be/Ielxe6wjLLE)
+
+---
+
+## Savannah @emit-sds
+there's a hanger at hunter, I know you not supposed to sleep in those things but I do want to see how I can clear for travel... at the same time I can tell its a building time so I'm patient in that way although I still feel stranded @foratlanta [CRAZE -- NEW SLAVES ROUTINE](https://youtu.be/Ielxe6wjLLE)
+<img   alt="image @emit-sds @foratlanta " src="https://github.com/user-attachments/assets/79f18c60-b27d-43e2-8959-987a537ca328" />
+<img  alt="EMIT_L2A_RFL_001_20231220T175025_2335412_012" src="https://github.com/user-attachments/assets/b04e4d75-f183-45cd-8de6-b75311e772e5" />
+
+
+## This is What Quavo did at Takeoff's Funeral.🥺😭♥️😔
+[`watch` - youtube.com/shorts/t6Kn9b-dtcI?feature=share](https://www.youtube.com/shorts/t6Kn9b-dtcI?feature=share)
+<img   alt="image" src="https://github.com/user-attachments/assets/1eeb3288-34a8-403d-b3f8-81669c0f5950" />
+
+
+Migos - Straightenin [`WATCH` - youtu.be/E553AnMAvlU](https://youtu.be/E553AnMAvlU)
+[youtube.com/channel/UC9YcTIQuhwgoOQqYMKYqW9A](https://www.youtube.com/channel/UC9YcTIQuhwgoOQqYMKYqW9A)
+<img   alt="image" src="https://github.com/user-attachments/assets/b3357e56-59e4-4ae6-a11f-1669785a1b1e" />
+[Yung Miami On Her Relationship with Diddy, JT Fallout, and Reclaiming Her Voice - Caresha Please](https://youtu.be/GE0jfYMaQuI?si=k0cOsbsKwhyZU815) // [Latto Talks 'Big Mama,' Motherhood, 21 Savage, Drake, Ice Spice, Cardi B + More](https://youtu.be/UFnOLE4NFag) // [City Girls Documentary: Point Blank Period](https://youtu.be/YQ4oglk_v7M) // [Yung Miami On JT Release, Sex Raps, Trina & Meeting Drake](https://youtu.be/dxT-DalLbf0)
+
+## Royal Absurdities Episode 1
+[`WATCH` - youtu.be/40Ixsl_Qe64](https://youtu.be/40Ixsl_Qe64)
+<img  alt="image" src="https://github.com/user-attachments/assets/f3d80526-84d0-4422-bcc2-8d5c5436d290" />
+<img   alt="image" src="https://github.com/user-attachments/assets/d1005c35-9101-48a2-b5b6-abebdf6c2ba7" />
+### T.I. - “Hit Dogs Holla” feat. [Tokyo Jetz](https://youtu.be/dMONFTXuMhA)
+[`WATCH` - youtu.be/oEsOfqpQ_iY](https://youtu.be/oEsOfqpQ_iY)
+<img   alt="image" src="https://github.com/user-attachments/assets/910cb5a3-2afa-450c-8e99-9e9f4539d994" />
+[`WATCH` - https://youtu.be/Ks3_kuRAzHs](https://youtu.be/Ks3_kuRAzHs)
+<img   alt="image" src="https://github.com/user-attachments/assets/77af114c-34c8-40e0-874e-17dffb2532bb" />
+
+Tokyo Jetz Talks About T.I., Cancel Culture, New Music, Adjusting To Being A Mother - [youtu.be/_vm6toX3jy0](https://youtu.be/_vm6toX3jy0)
+<img alt="image" src="https://github.com/user-attachments/assets/b4a18708-be4c-4ad4-88c0-882bfc070342" />
+
+T.I. Opens Up About His BET Awards Opening, Legacy & Kill The King
+[`WATCH` -youtu.be/3LJQ3yl-kfM](https://youtu.be/3LJQ3yl-kfM)
+
+<img   alt="image" src="https://github.com/user-attachments/assets/8c041291-ac37-4494-8d35-9d723e6ca58f" />
+<iframe width="100%" height="450" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/soundcloud%253Aplaylists%253A808691427&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/bobatl" title="B.o.B" target="_blank" style="color: #cccccc; text-decoration: none;">B.o.B</a> · <a href="https://soundcloud.com/bobatl/sets/b-o-b-southmatic" title="B.o.B - Southmatic" target="_blank" style="color: #cccccc; text-decoration: none;">B.o.B - Southmatic</a></div>
+
+
+# Lana J. Harris on Hot97TV
+_Why An AI Researcher Quit Over An Extinction Threat_
+[`WATCH` - youtu.be/VS7L51mjI-g](https://youtu.be/VS7L51mjI-g)
+<img alt="image" src="https://github.com/user-attachments/assets/4f8553c2-f3d3-4d66-be17-29ff49d4088c" />
+
+```
+https://youtu.be/4YnnIsdSwic?si=PNZL2QVwxm2LRMKM
+@doyouwantmore we got philly images @QuestloveSupreme you need tiff file functionality to view 
+https://coastalimagery.blob.core.windows.net/digitalcoast/PhiladelphiaPA_RGBN_2026_14640/index.html   @NASAJPL @DEPTofWAR  @NASAEARTHDATA i found @NOAA files and shared as instructed @NASA @repkarenbass @lacityclerk @LANAjHARRiS @missjillscott @DJJazzyJeffVEVO @djjazzyjeff
+```
+
+[`WATCH` - Elon Musk’s Ex Rejects $40M To Expose Him](https://youtu.be/c6BNh_dh6_0?si=sD4OEuhi3V2e0RGI)
+@teslamotors @tesla she want her story verified @cia she claim she read off a teleprompter,,, i just started thinkin she bullshit @foratlanta @howard-university-web-services if her dad not iCe-t Karen Bass i get that she been running from his violators for a long time, if t.i. her brother i really think there is a patriarch that works in aerospace in real time, so i just want to make sure im not out of line @blackgirlscode [Ice-T Sets The Record Straight On Who Really Started Gangsta Rap... A Hip-Hop Master Class](https://youtu.be/KEmKZIX3kDE) ////////// @cityofsandiego @cityoflosangeles [Remnants of Hurricane Marie hit San Diego County with lightning, winds and heat](https://www.sandiegouniontribune.com/2026/09/08/san-diego-countys-oppressively-hot-weather-will-last-until-late-this-week/#) 
+<img   alt="image" src="https://github.com/user-attachments/assets/3e4229c7-0f7a-4e31-9b5a-cefaaa41a5bf" />
+
+[`WATCH` - Toxic Orange Chemical Cloud, Flock Camera Nightmare & Dangling Bridge Crash](https://youtu.be/oJuC8Pkpqmk)
+Chemical leak // [La Habra Shelter in Place Order Lifted After Orange Plume Hovers Above City Hall Neighborhood ](https://voiceofoc.org/2026/09/la-habra-shelter-in-place-order-lifted-after-orange-plume-hovers-above-city-hall-neighborhood/)
+La Habra tank emits unknown chemical @nbcnews @nasa-jpl [laist.com/brief/news/chemical-leak-tank-la-habra](https://laist.com/brief/news/chemical-leak-tank-la-habra)
+
+![https://scpr.brightspotcdn.com/3d/90/a00620904650ba75eb573b46106b/laistlogo-black.svg](https://scpr.brightspotcdn.com/3d/90/a00620904650ba75eb573b46106b/laistlogo-black.svg) 
+
+![https://bhoonidhi.nrsc.gov.in/NISAR/images/ROP/bhooimg.JPG](https://bhoonidhi.nrsc.gov.in/NISAR/images/ROP/bhooimg.JPG) 
+[bhoonidhi.nrsc.gov.in/NISAR/ROP.html @nasa-jpl @usgs](https://bhoonidhi.nrsc.gov.in/NISAR/ROP.html)
+<img  alt="image" src="https://github.com/user-attachments/assets/295f4284-da5e-40f2-a676-0a3f68981484" />
+
+[bhoonidhi.nrsc.gov.in/NISAR/ROP.html](https://bhoonidhi.nrsc.gov.in/NISAR/ROP.html)
+<img  alt="image" src="https://github.com/user-attachments/assets/2168c293-acb4-4527-a21c-5141fdfc07cb" />
+
+
+<img  alt="image" src="https://github.com/user-attachments/assets/1f244dad-ee7c-4626-838f-82abbe07046f" />
+
+-- sea level rise viewer
+[coast.noaa.gov/slr/#/layer/slr/3/-13200426.60342599/3990766.260359932/9.520/satellite/82/0.8/2050/interHigh/noAccretion/NOS_Minor](https://coast.noaa.gov/slr/#/layer/slr/3/-13200426.60342599/3990766.260359932/9.520/satellite/82/0.8/2050/interHigh/noAccretion/NOS_Minor)
+<img   alt="image" src="https://github.com/user-attachments/assets/e30cac5e-5691-4ee4-a72c-24122ee95fc9" />
+
+
+<img   alt="MSLSP_11SLT_2019 1" src="https://github.com/user-attachments/assets/8982676a-ab55-4f87-8f2c-dbe03f7bdc0a" />
+
+landsat @cityoflosangeles L57 Globe month11 2001 hh08vv05 h1v4 doy307to334 NBAR v3 1 1 @nasa-jpl
+<img width="1024" height="1024" alt="L57 Globe month11 2001 hh08vv05 h1v4 doy307to334 NBAR v3 1 1" src="https://github.com/user-attachments/assets/6a468650-0ca9-481b-aa9c-838c092fdbd2" />
+
+# San Bernadino
+<img   alt="image" src="https://github.com/user-attachments/assets/b4fea0d7-e148-4c57-a422-909bc18ae83c" />
+
+---
+<img  alt="image send 2 lana @blackgirlscode @emergingCoders " src="https://github.com/user-attachments/assets/9c7d763d-2ece-4e04-8f57-df154380e828" />
+
+@CityOfSanDiego @SANDAG 
+this @nasa-jpl image from 7/17 shows something in your water, find other maps of that day, im learning how to read the new formats myself 
+2026-07-16 `ECOv002_L3T_MET_45513_003_11SMS_20260716T004628_0713_01`
+<img  alt="image" src="https://github.com/user-attachments/assets/1149911b-ddd9-426b-97e5-e3feb16c391b" />
+
+
+---
+8./25 @UCLA .amazonaws.com/ECO_L3T_JET.002/ECOv002_L3T_JET_46145_010_11SLT_20260825T162506_0713_01/ECOv002_L3T_JET_46145_010_11SLT_20260825T162506_0713_01 @nasa-jpl
+<img  alt="image" src="https://github.com/user-attachments/assets/f16e13de-d5f7-4551-8226-ba31c01a67ee" />
+8/25 ECOv002_L3T_MET_46145_010_11SLT_20260825T162506_0713_01
+<img  alt="image" src="https://github.com/user-attachments/assets/15a09569-f39e-4c90-9329-22582c7ebb35" />
+
+
+hi @la-county-isd . . . . @nasa-openscapes @nasa-jpl image troubleshooting OPERA_L3_DSWx-HLS_T11SLT_20260904T182921Z_20260906T024808Z_S2C_30_v1 1_BROWSE
+<img  alt="OPERA_L3_DSWx-HLS_T11SLT_20260904T182921Z_20260906T024808Z_S2C_30_v1 1_BROWSE" src="https://github.com/user-attachments/assets/d166b3f9-00b7-4f91-b450-98e116cd4c27" />
+
+![https://www.hollyjmitchell.com/_next/image?url=https%3A%2F%2Fmedia.designedtorun.com%2F5a7f31fb-4ca3-458b-86e1-c9a2c104048b%2FHolly_Mitchell-logo_designs_RE-ELECT-r0-14---runcbt%3A%3A0%2Ccbl%3A%3A140.71361502347418%2Ccbw%3A%3A406.57276995305165%2Ccbh%3A%3A300%2Cd%3A%3A1676042294918%2Co%3A%3Ahttps%3A--slash----slash--media.designedtorun.com--slash--5a7f31fb-4ca3-458b-86e1-c9a2c104048b--slash--1676042293913-Holly_Mitchell-logo_designs_RE-ELECT-r0-14-.pngrun--.png&w=1920&q=75](https://www.hollyjmitchell.com/_next/image?url=https%3A%2F%2Fmedia.designedtorun.com%2F5a7f31fb-4ca3-458b-86e1-c9a2c104048b%2FHolly_Mitchell-logo_designs_RE-ELECT-r0-14---runcbt%3A%3A0%2Ccbl%3A%3A140.71361502347418%2Ccbw%3A%3A406.57276995305165%2Ccbh%3A%3A300%2Cd%3A%3A1676042294918%2Co%3A%3Ahttps%3A--slash----slash--media.designedtorun.com--slash--5a7f31fb-4ca3-458b-86e1-c9a2c104048b--slash--1676042293913-Holly_Mitchell-logo_designs_RE-ELECT-r0-14-.pngrun--.png&w=1920&q=75)
+
+OPERA_L3_DIST-ANN-HLS_T11SLT_2025_20260109T171932Z_30_v1_VEG-DIST-STATUS
+[@la-county-isd @cityoflosangeles holly j mitchell](https://lacounty.gov/government/board-of-supervisors/holly-j-mitchell/) FireRecovery its old from a year ago but its a great vegitation map for the firemeetings 
+<img  alt="OPERA_L3_DIST-ANN-HLS_T11SLT_2025_20260109T171932Z_30_v1_VEG-DIST-STATUS @la-county-isd @cityoflosangeles holly j mitchell FireRecovery" src="https://github.com/user-attachments/assets/5f5387e6-14f8-4157-9b25-bd444107e59e" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/ff7426ad-1e4e-41d1-ae1d-021eafaf2f90" />
+
+![ @la-county-isd @cityoflosangeles holly j mitchell FireRecovery its old from a year ago but its a great vegitation map for the firemeetings  @nasa-pds @doug-newman-nasa https://d1nklfio7vscoe.cloudfront.net/s3-2d2df3a34830d5223d1e9547cd713408/lp-prod-public.s3.us-west-2.amazonaws.com/OPERA_L3_DIST-ANN-HLS_V1/OPERA_L3_DIST-ANN-HLS_T11SLT_2025_20260109T171932Z_30_v1/OPERA_L3_DIST-ANN-HLS_T11SLT_2025_20260109T171932Z_30_v1_VEG-DIST-STATUS.png?A-userid=None&Expires=1789069569&Signature=kDpA7Iv98aLPuN8J8qsd6rRCPbMn33IkqXhwt6jWxovwJNrtZ3QEE5cGi2U7PFd3D7CsSbHshiv18-Tv1kcMyTu8161900T20MqePslhSZum-IH1v7JaCFj0hiXjGOFqxpK8z7JURfMCoIjo9V7KsG2QXpuNnSYK-O75-wnHPxdEijnUFzVzE5-nMEJyiNVy33B8TbAV5O5SR6oXpeeDPSgv-23iKjO3uv5XpFkuyBVFy-tkZae0eQvOO3e6l0wwbqPL9~34rXMIQpvyXpClEeuZ6wuqy15vFRAE02cCSiojUg6cdD2G2YAn8Bl~q4wUXaTXoTD6FYBDA-HkAH0cmg__&Key-Pair-Id=K1JHXLBU4LECA2](https://d1nklfio7vscoe.cloudfront.net/s3-2d2df3a34830d5223d1e9547cd713408/lp-prod-public.s3.us-west-2.amazonaws.com/OPERA_L3_DIST-ANN-HLS_V1/OPERA_L3_DIST-ANN-HLS_T11SLT_2025_20260109T171932Z_30_v1/OPERA_L3_DIST-ANN-HLS_T11SLT_2025_20260109T171932Z_30_v1_VEG-DIST-STATUS.png?A-userid=None&Expires=1789069569&Signature=kDpA7Iv98aLPuN8J8qsd6rRCPbMn33IkqXhwt6jWxovwJNrtZ3QEE5cGi2U7PFd3D7CsSbHshiv18-Tv1kcMyTu8161900T20MqePslhSZum-IH1v7JaCFj0hiXjGOFqxpK8z7JURfMCoIjo9V7KsG2QXpuNnSYK-O75-wnHPxdEijnUFzVzE5-nMEJyiNVy33B8TbAV5O5SR6oXpeeDPSgv-23iKjO3uv5XpFkuyBVFy-tkZae0eQvOO3e6l0wwbqPL9~34rXMIQpvyXpClEeuZ6wuqy15vFRAE02cCSiojUg6cdD2G2YAn8Bl~q4wUXaTXoTD6FYBDA-HkAH0cmg__&Key-Pair-Id=K1JHXLBU4LECA2)
+
+
+# Phytoplankton Blooms Around Los Angeles and Santa Catalina Island
+@StateOfCalifornia [`READ` - pace.oceansciences.org/ocean_color @cbs-news-data @nbcnews](https://pace.oceansciences.org/ocean_color_more.htm?id=466)
+@CityOFLosAngeles this is `yesterday` @Nasa-jpl @nasa-giss
+RexRichardson for HurricaneCleanup Mayor KAren Bass LA_COUNTY -
+
+@eodis-nasa "HLS L30 T11SLT 2026241T182814 v2 0" @landsat @doug-newman-nasa hi whatever that blackwoman on romans name is i know Latrice is her sister or something and shes still my book keeper, thats all been happening, she was in front of the Federal Courthouse on some day a rapper was a trial with someone from her world of media broadcasting i saw a vid of this whitedude playing in her sleeping quarters on @tiktok and just holding professional distance, bc since i met her at dance411 i really dont know what her personal life hides that could disable us @whitehouse 
+<img  alt="HLS L30 T11SLT 2026241T182814 v2 0" src="https://github.com/user-attachments/assets/bb4a046b-0b55-4a80-83c1-d98d6657c2df" />
+@nasa-jpl _`aster`_ AST_L1T_00403132024180619_20251004025730
+<img width="448" height="416" alt=" @nasa-jpl _`aster`_ AST_L1T_00403132024180619_20251004025730 (1)" src="https://github.com/user-attachments/assets/01ce8535-2a9c-449e-99d6-6a461d0ca6ff" />
+
+<img alt="2026-09-09-00_00_2026-09-09-23_59_Sentinel-2_L2A_True_color (2)" src="https://github.com/user-attachments/assets/e66e0a91-3e4e-4893-b94b-4857f57a6a2c" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/b19127fd-e2c3-400c-8bdc-0eff1f67139b" />
+
+<img  alt="2026-09-09-00_00_2026-09-09-23_59_Sentinel-2_L2A_True_color (1)" src="https://github.com/user-attachments/assets/1992800a-10ae-44b0-ab6a-177c8e56e6e2" />
+
+<img  alt="2026-09-09-00_00_2026-09-09-23_59_Sentinel-2_L2A_True_color" src="https://github.com/user-attachments/assets/b14495e2-dca6-47ad-8f9c-d372ba5dd911" />
+
+![https://mars.nasa.gov/msl-raw-images/proj/msl/redops/ods/surface/sol/05009/opgs/edr/ncam/NRB_842150940EDR_M1242368NCAM00579M_.JPG](https://mars.nasa.gov/msl-raw-images/proj/msl/redops/ods/surface/sol/05009/opgs/edr/ncam/NRB_842150940EDR_M1242368NCAM00579M_.JPG) 
+
+![https://pace.oceansciences.org/images/layout/pace_l2_banner_txt.png @emit-sds idk how whoever got this color out... its hard to get to a commandline for imagemagick and photoshop is a pipedream in this era @PODACC @CityOfLosAngeles 
+](https://pace.oceansciences.org/images/layout/pace_l2_banner_txt.png)
+
+
+@la-county-isd @nasa @USGS there are some data products that im seeking to complete my [hurricane report](https://www.facebook.com/watch/?v=1093287340315082) with that i cannot use bc noone at the library knows what [netCDF](https://www.giss.nasa.gov/tools/panoply/) is ... @CiTYOFLoSANGELES [SupLindseyHoravath @la-county-isd](https://lindseyhorvath.lacounty.gov/meet-lindsey/), i need to install _`Panoply`_ and idk what robin wants in totality  , but @deptofwar style military reporting works @nasa-jpl and im just signing off on the issue, oh yeah the green stuff from the river washed up on the beach. I dont have a camera so best i can say is walk to the sand and you will see the once green florets yellow @LongbeachinnovationTeam @CityOFSantaMonica [giss.nasa.gov/tools/panoply/ @nasa-giss](https://www.giss.nasa.gov/tools/panoply/)
+
+![https://www.giss.nasa.gov/tools/panoply/gfx/panoply_500_1440x960.png @la-county-isd @nasa @USGS there are some data products that im seeking to complete my [hurricane report](https://www.facebook.com/watch/?v=1093287340315082) with that i cannot use bc noone at the library knows what [netCDF](https://www.giss.nasa.gov/tools/panoply/) is ... @CiTYOFLoSANGELES [SupLindseyHoravath @la-county-isd](https://lindseyhorvath.lacounty.gov/meet-lindsey/), i need to install _`Panoply`_ and idk what robin wants in totality  , but @deptofwar style military reporting works @nasa-jpl and im just signing off on the issue, oh yeah the green stuff from the river washed up on the beach. I dont have a camera so best i can say is walk to the sand and you will see the once green florets yellow @LongbeachinnovationTeam @CityOFSantaMonica [giss.nasa.gov/tools/panoply/ @nasa-giss](https://www.giss.nasa.gov/tools/panoply/)](https://www.giss.nasa.gov/tools/panoply/gfx/panoply_500_1440x960.png)
+
+<img alt="image @la-county-isd @nasa @USGS there are some data products that im seeking to complete my [hurricane report](https://www.facebook.com/watch/?v=1093287340315082) with that i cannot use bc noone at the library knows what [netCDF](https://www.giss.nasa.gov/tools/panoply/) is ... @CiTYOFLoSANGELES [SupLindseyHoravath @la-county-isd](https://lindseyhorvath.lacounty.gov/meet-lindsey/), i need to install _`Panoply`_ and idk what robin wants in totality  , but @deptofwar style military reporting works @nasa-jpl and im just signing off on the issue, oh yeah the green stuff from the river washed up on the beach. I dont have a camera so best i can say is walk to the sand and you will see the once green florets yellow @LongbeachinnovationTeam @CityOFSantaMonica [giss.nasa.gov/tools/panoply/ @nasa-giss](https://www.giss.nasa.gov/tools/panoply/)" src="https://github.com/user-attachments/assets/11087ccb-b522-4713-b2f0-ee588d2e1138" />
+
+![https://lindseyhorvath.lacounty.gov/wp-content/uploads/2023/03/horvath.light_.pink_.v3.png](https://lindseyhorvath.lacounty.gov/wp-content/uploads/2023/03/horvath.light_.pink_.v3.png) 
+
+@emit-sds idk how whoever got this color out... its hard to get to a commandline for imagemagick and photoshop is a pipedream in this era @PODACC @CityOfLosAngeles 
+
+![https://pace.oceansciences.org/images/ocig/LC08_L1TP_041036-037_20211127_20211127_01_RT_CatalinaIsland_sm.jpg @emit-sds idk how whoever got this color out... its hard to get to a commandline for imagemagick and photoshop is a pipedream in this era @PODACC @CityOfLosAngeles 
+](https://pace.oceansciences.org/images/ocig/LC08_L1TP_041036-037_20211127_20211127_01_RT_CatalinaIsland_sm.jpg) 
+
+  [Kenny Rogers - The Gambler](https://youtu.be/7hx4gdlfamo) // [Troubles · Alicia Keys](https://youtu.be/dsadjRYwaxY) // [Rico Nasty - Animal (Prod By. Mel-O-Dee)](https://youtu.be/bUZEaXgFYqM?si=vLCMjW3zBOO2Vxcd) // [Perfect Match · Cella Dwellas @doug-newman-nasa](https://youtu.be/5WHySdRlcUE?si=9Ds5oZPwNV7XzlU3) // [Bonobo ft Szjerdene - Get Thy Bearings](https://youtu.be/4-mWpknZ6Ls) // [Don't Save Her · Project Pat · Crunchy Black](https://youtu.be/Yu___7W69eE) // [Dj Total Eclipse Juggle Fest Rare Mixtape Cassette A](https://youtu.be/QpHtjIc83Ng) // [Surah 4](https://youtu.be/0lMNMwTB5M8) //  [Surah 4](https://youtu.be/0lMNMwTB5M8) // [Fat Joe - They Wanna Know ](https://youtu.be/UZIaR-3H32U?si=Y9ObscCYLMc_Fuuk) // [Return Of The D.J. Vol. II (Bomb Hip-Hop Compilation 1997)](https://youtu.be/2Du6WbtZEAE) // [Glamour Life](https://www.youtube.com/watch?v=1QnOCkQLTC0) // [Rico Nasty - Block List](https://youtu.be/oe_3y_RjnpA) // [Black Girl Lost · Nas](https://youtu.be/ZMAoZrJVQKI) // [Usher - My Way](https://youtu.be/dthjojjVhDo) // [The Lady In The Bottle  I Dream Of Jeannie s1e1](https://www.youtube.com/watch?v=F41Y37XTZck) // [It's All About Me performed by Mya ft. Dru HilL](https://youtu.be/WzfLg2Bwk4I?si=47mLZMZm6vqd3cId) // [Dru Hill - In My Bed](https://youtu.be/_Ixip0K2r10) // [Al B. Sure! - Nite and Day](https://youtu.be/Fckqglxb49s) // [ Immortal Technique - Toast to the Dead 4 `Muna`](https://youtu.be/kLBNMhzn8VI) // [Jean Grae - My Story ](https://youtu.be/jFz6ECvaiqQ) // [ I Ain´t Mad At Cha - 2Pac Ft. Danny Boy](https://youtu.be/oXkKURgzYVY) // [ Keep Ya Head Up - 2pac](https://youtu.be/SHVzWMFMH6Y) // [Gil Scott Heron - Angel Dust ](https://youtu.be/pRQgviNNZEM) // [Mary J. Blige - Your Child](https://youtu.be/bQWOEaQfuEQ)
+
+
+--- 
+
+
+# [Mary J. Blige - Your Child](https://youtu.be/bQWOEaQfuEQ)
+[Mary J. Blige - Your Child](https://youtu.be/bQWOEaQfuEQ) @ForAtlanta where is coral ? I was working the whole time . . . 
+<img  alt="image" src="https://github.com/user-attachments/assets/1c6e4280-d7e7-4539-9de5-be3dcbc3393e" />
+
+### Jean Grae - My Story 
+[`WATCH` - youtu.be/jFz6ECvaiqQ _@nasa-pds @disney_ ](https://youtu.be/jFz6ECvaiqQ)
+<img   alt="image" src="https://github.com/user-attachments/assets/8824b6c3-2851-4ffd-aef0-ff5ece9917cc" />
 
 @la-county-isd @nasa-jpl @doug-newman-nasa @eodis-nasa 
 [@NOAAGov archive.org/download/longbeach_202605/CBS_LOS_ANGELES_LANAJHARRIS_KARENBASS_SPACEBEACH_NASAPODAACrashardLongBeachissuesevacuationordersaspowerfulwaveserodeLACountycoastline.mp4 @CityOfLosAngeles @StateOfCalifornia @La-coiunty-isd @cityofsandiego @hsfl](https://archive.org/download/longbeach_202605/CBS_LOS_ANGELES_LANAJHARRIS_KARENBASS_SPACEBEACH_NASAPODAACrashardLongBeachissuesevacuationordersaspowerfulwaveserodeLACountycoastline.mp4)
