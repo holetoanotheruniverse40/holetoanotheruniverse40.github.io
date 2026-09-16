@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Compiling-Jan27:OLDDATASORT"
-date:   2026-04-02 12:51:06 -0800
+date:   2026-09-16 03:51:06 -0800
 categories: art hr atlanta nasa la
 published: true
 image: luckyGirl.png
@@ -19,6 +19,295 @@ Computer Security Resource Center [man-in-the-middle attack (MitM)](https://csrc
 @la-county-isd @blackgirlscode @nasa-jpl [email @usnistgov](https://mail.google.com/mail/u/0/#sent/KtbxLrjNdDszjzkLQVlTHsXPGjbDBFJJNB) @vsco @voyager-tech-inc @googleworkspace  @Whitehouse @dhs-gov 
 
 `https://mail.google.com/mail/u/0/#sent/KtbxLrjNdDszjzkLQVlTHsXPGjbDBFJJNB`
+
+## NASA’s SpaceX Crew-12 Pre-Departure News Conference (Sept. 16, 2026)
+[`WATCH` - youtube.com/live/aujP8wuMTMI?si=0e_Y7_Gw4Qw6wtyp](https://www.youtube.com/live/aujP8wuMTMI?si=0e_Y7_Gw4Qw6wtyp) 
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aujP8wuMTMI?si=CpPX4dfKMxYzjRyv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+
+@USNAVY @NASA-GiSS @NAsa-pds [Victor Glover](https://www.nasa.gov/wp-content/uploads/2026/09/glover-vj.pdf), Try this Mars Simulator [https://www.zombs-lair.com/martian-gothic-unification](https://www.zombs-lair.com/martian-gothic-unification) @SonyResearch he should know how to run @libRetro at his paygrade
+[https://archive.org/details/martian-gothic](https://archive.org/details/martian-gothic) // [@dEPTOFwAR https://archive.org/download/Centuron-PSX/Martian%20Gothic%20-%20Unification.cue @FBICYBER](https://archive.org/download/Centuron-PSX/Martian%20Gothic%20-%20Unification.cue) // [https://archive.org/download/Centuron-PSX/Martian%20Gothic%20-%20Unification.bin](https://archive.org/download/Centuron-PSX/Martian%20Gothic%20-%20Unification.bin) <~ @deptofwar [aanandmadhav.com/work/emirates-mars-mission](https://aanandmadhav.com/work/emirates-mars-mission)
+@nasa-pds [marssim.space/](https://marssim.space/)  ~< [@sONY @sONYrESEARCH](https://www.jpl.nasa.gov/topics/mars/) the Mars team is a big climate organization. Before people go the monitoring should be stable, more on that later but I put orders in to turn on the earthquake monitoring for safety, I have to formalize it at some point @ESA I'm talking about the landers 
+<iframe src="https://archive.org/embed/psx_martgoth" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+[`WATCH` -  youtu.be/GFqp_36ajSo?si=KSEM74L7pB9cEO5a](https://youtu.be/GFqp_36ajSo?si=KSEM74L7pB9cEO5a)
+<img  alt="image" src="https://github.com/user-attachments/assets/09215bbb-919f-43c6-8ca2-dc8ab9523505" />
+_[Mars Reconnaissance Orbiter](https://hirise-pds.lpl.arizona.edu/PDS/CATALOG/MISSION.CAT)_ 
+: [Mission Objectives](https://www.google.com/logos/doodles/2025/fourth-of-july-2025-6753651837110704-2x.png) NASA's Mars Reconnaissance Orbiter searches for evidence that water persisted on the [surface of Mars](https://acawpg.org/adult-childrens-bill-of-rights/) for a long period of time. [ReadMore](https://science.nasa.gov/mission/mars-reconnaissance-orbiter/) : 
+<img  alt="image" src="https://github.com/user-attachments/assets/64c02872-7eb8-44a3-bee4-24881f0cdaf9" />
+[U.S. Spacewalk Preview News Conference (June 25, 2026)](https://www.youtube.com/live/QNNfhTwmYso?si=rn-Tv2PBEMZYBcnb)
+@la-county-isd @cityoflosangeles @stateofcalifornia 
+Hearing on 2025 Urban Water Management Plans and Water Shortage
+Contingency Plan [@la-county-isd agenda item 5 5.](https://assets-us-01.kc-usercontent.com/0234f496-d2b7-00b6-17a4-b43e949b70a2/a257c57e-fc0a-42f8-b960-7def804864d2/Agenda%20062326_links.pdf#page=6) im starting here, as scratch space [bos.lacounty.gov/board-meeting-agendas](https://bos.lacounty.gov/board-meeting-agendas/) 
+
+##  Watch Live 🔴SpaceX USSF-259 Launch Live Stream: Falcon 9 Liftoff from Vandenberg 
+[@nasa-jpl @nasa-giss youtu.be/4vYPnPnVwZ4](https://youtu.be/4vYPnPnVwZ4) /// [spacex.com/launches/ussf259](https://www.spacex.com/launches/ussf259) ? @blackgirlscode hi there's a launch if any of u still picking up extra creds for that stuff @usc ... @la-county-isd @CityOFLosAngeles @CityOfSantaMonica depending on the weather we may a jelly fish tonight [`Launch Plume: SpaceX Jellyfish` apod.nasa.gov/apod/ap260319.html](https://apod.nasa.gov/apod/ap260319.html)
+<img alt="image" src="https://github.com/user-attachments/assets/38dbabd2-599b-4fdd-a221-2d51161cc216" />
+
+#### Monster Energy: Ballistic BJ Baldwin Recoil 2 - Unleashed in Ensenada, @Mexico
+[`watch` - youtu.be/JXMyZ929lpY](https://youtu.be/JXMyZ929lpY)
+`@lanajharris . . @deptofwar watch for comments this shit gone be crazy @NASAJPL plz fwd to RoverOperations @NASA-pds @PasadenaGov I have been documents some dunes  @repkarenbass I don't think a @tesla #CYBERTRUCK on Mars is that easy, but I'm worried about tires and leaving shit behind,,,, the rover slow @chloebaileywashere @SupervisorHollyJMitchell @RepJudyChu`
+<img   alt="image" src="https://github.com/user-attachments/assets/f584d6eb-775c-43b3-901e-5fc1a7d43106" />
+
+![https://yt3.googleusercontent.com/TcVQR3wb_bzgLJiFbdyrrxU4zv-MiQmVAfvjt2L3kV9I7uDhRhrhikZnm-9ybX_9h9shWdwQ=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/TcVQR3wb_bzgLJiFbdyrrxU4zv-MiQmVAfvjt2L3kV9I7uDhRhrhikZnm-9ybX_9h9shWdwQ=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
+
+![https://sxcontent9668.azureedge.us/cms-assets/assets/F9_AUTONOMOUS_DRONESHIP_DESKTOP_8c25a9a0ca.webp](https://sxcontent9668.azureedge.us/cms-assets/assets/F9_AUTONOMOUS_DRONESHIP_DESKTOP_8c25a9a0ca.webp) 
+![https://sxcontent9668.azureedge.us/cms-assets/assets/USSF_259_Vertical_7449_Desktop_a7d8103cfa.jpg](https://sxcontent9668.azureedge.us/cms-assets/assets/USSF_259_Vertical_7449_Desktop_a7d8103cfa.jpg)
+
+```
+
+
+@SpaceXtudio​​Welcome to the USSF-259 live stream! 🚀SpaceX Falcon 9 launching a classified U.S. Space Force mission from Vandenberg tonight.Webcast starts ~10 min before liftoff. Enjoy the show!
+@mobetternow​​wasted 20 minutes of my data
+@Misfit-from-Zanti#3​body-blue-raised-arms
+@dochia8585​​🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉 GOOD LUCK AND ALL THE BEST TO SPACE X, FALCON 9!!! 🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉
+@brokenwrench404​​Dumb kid getting banned 🤦🏻‍♂
+@MonicaMarques-w1s7m​​Good afternoon
+@thakasErikaselassie_kelly​​@NASA-pds @LANAjHARRis welcome to @NASAEARRTHDATA at least as our client gm @repkarenbass we have a launch scheduled for this evening @AllyEdwardsRealtor plz fwd to MAyowr Rwose @NewsChannel312 @HOT97
+@thakasErikaselassie_kelly​​@NASA-pds @LANAjHARRis welcome to @NASAEARTHDATA at least as our client gm @repkarenbass we have a launch scheduled for this evening @AllyEdwardsRealtor plz fwd to MAyowr Rwose @NewsChannel312 @HOT97
+@IvaneteMacaneiro​​💥👏👏💯💯💯❤❤❤
+@thakasErikaselassie_kelly​​@hollywoodfoodcoalition can you get us some more of that snatabarbara ice cream ? @AllyEdwardsRealtor plz fwd to MAyowr Rwose @NewsChannel312 @HOT97 @HildaSolisforCongress @TheMidnightMission601
+@thakasErikaselassie_kelly​​@SpaceSystemsCommand hi im going to do an overview of the weather after i writedown what i observed crossing the river @losangelesmetro @CountyofLosAngelesNewsroom gm @DeptOFWAR
+Welcome to live chat! Remember to guard your privacy and abide by our community guidelines. Learn more
+@khananees957​​InssshaAllah
+@khananees957​​helo
+@thakasErikaselassie_kelly​​I started talking on @github about a job @PlayStation @SonyCorporation-Official , @deptofwar check is Sony INteractive LLC a legit business in @SantaMonicaCloseup @ImagingbySony @chloebaileywashere
+@thakasErikaselassie_kelly​​@HOWARDUNiVERSiTY LATRiCE @LanaJHARRiS @GLORiLLA I started talking on @github about a job @PlayStation @SonyCorporation-Official , @deptofwar check is Sony INteractive LLC a legit business? @normani
+@thakasErikaselassie_kelly#2​hi @BLACKGiRLSCODE
+@UsmanButt-b1l​​Ye kab
+```
+# Chlöe 
+[wiki:talk](https://en.wikipedia.org/wiki/Talk:Chloe_Bailey) @howard-university-web-services
+[https://www.youtube.com/channel/UCOriumHxzl4O2G7MXS7rrpQ](https://www.youtube.com/channel/UCOriumHxzl4O2G7MXS7rrpQ)
+![https://yt3.googleusercontent.com/K89LBU1ekwcQpSKalGtejwEPnSawmCPHOtM5XN5_JauTM2BRPILGStdeY2XzixWHzV4jl9vHkqM=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/K89LBU1ekwcQpSKalGtejwEPnSawmCPHOtM5XN5_JauTM2BRPILGStdeY2XzixWHzV4jl9vHkqM=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
+
+<img  alt="image" src="https://github.com/user-attachments/assets/adc1f0cf-fd82-44d9-a817-e6da5dcd44c0" />
+
+@nasa-jpl hi @usgs ... @CityOfLosAngeles I am using [The Chinatown Branch](https://www.lapl.org/branches/chinatown) // [ @yelp .com/biz/chinatown-branch-library-los-angeles](https://www.yelp.com/biz/chinatown-branch-library-los-angeles)/ [loc.gov/exhibits/lamapped/](https://www.loc.gov/exhibits/lamapped/) // [ @instagram .com/chinatownlapl/?hl=en](https://www.instagram.com/chinatownlapl/?hl=en) // github.com/virtiserv/`detect-secrets` An enterprise friendly way of detecting and preventing secrets in code. @nasa-jpl it might help us stop photojournal.jpl.nasa.gov from vanishing again! [@NASA-PDS @usgs @CityOfLosAngeles](https://github.com/virtiserv/detect-secrets)
+![https://www.lapl.org/sites/default/files/styles/embedded_480w/public/blogs/2022-11/chinatown-branch.jpg.webp?itok=4Jrup64T](https://www.lapl.org/sites/default/files/styles/embedded_480w/public/blogs/2022-11/chinatown-branch.jpg.webp?itok=4Jrup64T)
+<img  alt="image" src="https://github.com/user-attachments/assets/10b7ad64-0f73-4be2-a27e-8014086fa08a" />
+
+[@libraryofcongress hi can you fwd to _MayorKarenBass_ @StateOFCAlifornia @ForAtlanta loc.gov/pictures/item/ca1261.photos.322502p/resource/](https://www.loc.gov/pictures/item/ca1261.photos.322502p/resource/)
+![@CityOfLosAngeles tile.loc.gov/storage-services/service/pnp/habshaer/ca/ca1200/ca1261/photos/322502pv.jpg](https://tile.loc.gov/storage-services/service/pnp/habshaer/ca/ca1200/ca1261/photos/322502pv.jpg)
+<img  alt="image" src="https://github.com/user-attachments/assets/f3b94c7d-8ed8-43c9-abb7-82b3fc8a9c18" />
+
+
+# DOD INSTRUCTION 2200.01 @DeptOfDefense @whitehouse @dhs-gov
+COMBATING TRAFFICKING IN PERSONS (CTIP)
+#### [@nasa-jpl this is the @DeptOfWar](https://www.esd.whs.mil/Portals/54/Documents/DD/issuances/dodi/220001p.pdf?ver=2019-06-21-102951-257) stance on sex trafficking, 
+[ @cityoflosangeles @stateofcalifornia @blackgirlscode esd.whs.mil/Portals/54/Documents/DD/issuances/dodi/220001p.pdf](https://www.esd.whs.mil/Portals/54/Documents/DD/issuances/dodi/220001p.pdf)
+1.2. POLICY. It is DoD policy to:
+a. Oppose prostitution, forced labor, and any related activities contributing to the
+phenomenon of trafficking in persons (TIP). CTIP will be applied across the entire spectrum of
+DoD missions, functions, programs, and activities.
+b. Deter activities of Service members, civilian employees, indirect hires, DoD contractors,
+foreign national employees of DoD, grant and cooperative agreement recipients, and all
+dependents that could facilitate or support TIP, domestically and overseas. These activities, to
+which DoD Components will uniformly refer using these terms when issuing internal
+implementing instructions and regulations, are:
+(1) Prostitution, pimping, pandering, and patronizing a prostitute. Even though such
+activities may be legal in a host country, they are in violation of:
+(a) Chapter 47 of Title 10, United States Code (U.S.C.), also known and referred to
+in this issuance as the “Uniform Code of Military Justice.”
+(b) Paragraph 106 of Part IV of the Manual for Courts-Martial.
+(2) Activities in violation of Chapter 77 of Title 18, U.S.C. including:
+(a) Forced labor and involuntary servitude.
+(b) Document tampering (e.g., withholding passports, fraudulent visas).
+(c) Sex trafficking of children.
+(3) Sex trafficking by force, fraud, or coercion in violation of Chapter 117 of Title 18,
+U.S.C.
+(4) Additional TIP-related offenses in Sections 1581, 1584, 1590-1597, 2421, 2421A,
+and 2422 of Title 18, U.S.C. 
+[esd.whs.mil/Portals/54/Documents/DD/issuances/dodi/220001p.pdf](https://www.esd.whs.mil/Portals/54/Documents/DD/issuances/dodi/220001p.pdf)
+<img alt="image" src="https://github.com/user-attachments/assets/a889a2eb-f963-4ffa-a8c8-57e06953a4c7" />
+
+
+@R0NB8kerMedia
+​​Everyone should Google the city Clerk’s name, I’m curious why her Info shows up for Lynwood
+
+
+@R0NB8kerMedia
+​​Does she live in Compton?
+
+
+@90candelarioL
+​
+
+#1
+​I couldn't find anything on that
+
+
+@90candelarioL
+​
+
+#1
+​I am still attempting to reach out to residents who are interested in Compton having anthro, geo, economic and health research done.
+
+
+@90candelarioL
+​
+
+#1
+​I'm attempting to start a nonprofit for ethical research in the City. But this needs the interaction of residents and support. Because everyone's voice matters in this project
+
+
+@Vonnieonie5
+​
+
+#3
+​Was late last week but on time now… the closed sessions are lasting longer and longer
+
+
+@90candelarioL
+​
+
+#1
+​yes it does feel like that. maybe I'll show the times of the closer meetings for Compton in a spreadsheet or video later
+
+
+@Vonnieonie5
+​
+
+#3
+​Oooh I like data!!
+
+
+@90candelarioL
+​
+
+#1
+​I want to bring up unethical research and surveillance with the residents here. This Sunday Flock cameras in Wilson Park were monitoring families parking and walking to church
+
+
+@Vonnieonie5
+​
+
+#3
+​Oh wow!!
+
+
+@90candelarioL
+​
+
+#1
+​This is the type of unethical and CREEPY research and surveillance we need an independent non profit to expose.
+
+
+@90candelarioL
+​
+
+#1
+​I've been monitoring and documenting those cameras since they went up. while construction crews resurfaced the road the cameras were pointing towards the sky
+
+
+@90candelarioL
+​
+
+#1
+​As soon as they cleared their construction cones they were pointing back down. Watching families in the park
+
+
+@bishoptwoneflowers
+​​Greetings my Compton Family💙💛
+
+
+@audreywhitfield2714
+​​Compton’s systems are already complicated enough
+
+
+@audreywhitfield2714
+​​Why can’t the interpreter just stay there?what is she doing?
+
+
+@DOWNTOWN.LA.37
+​
+
+#2
+​remember the government works for we the people
+
+
+@DOWNTOWN.LA.37
+​
+
+#2
+​do public records
+
+
+@DOWNTOWN.LA.37
+​
+
+#2
+​they get pay to be there señora
+
+
+@DOWNTOWN.LA.37
+​
+
+#2
+​those parking enforcement should be ticketing those semi trucks blocking avalon n san pedro
+
+Welcome to live chat! Remember to guard your privacy and abide by our community guidelines. Learn more
+
+@thakasErikaselassie_kelly
+​​@lanajharris do we need to talk ? I saw you using @NASAJPL data on @HOT97
+
+
+@thakasErikaselassie_kelly
+​​@latto @essencemag
+
+
+@thakasErikaselassie_kelly
+​​[https://www.essence.com/news/erika-kelly-missing-atlanta-georgia/ @repkarenbass #DenimDay](https://www.essence.com/news/erika-kelly-missing-atlanta-georgia)
+
+
+@thakasErikaselassie_kelly
+​​essence.com/news/erika-kelly-missing-atlanta-georgia/ @repkarenbass #DenimDay @lanajharris do we need to talk ? I saw you using @NASAJPL data on @HOT97 @AtlantaNewsFirst @ATLChannel26 @fox5atlanta
+
+## National Voters Registration Day 2026
+[doodles.google/doodle/national-voter-registration-day-2026/](https://doodles.google/doodle/national-voter-registration-day-2026/) /// [github.com/ @google](https://github.com/google) `jekyll.version`  {{ jekyll.version }}
+![https://www.google.com/logos/doodles/2026/national-voter-registration-day-2026-6753651837111215-2x.png @Cityoflosangeles @nasa-jpl @cityoflosangeles @whitehouse @USGS @FECGOV @USC @howard-university-web-services @blackgirlscode](https://www.google.com/logos/doodles/2026/national-voter-registration-day-2026-6753651837111215-2x.png)
+
+@thakasErikaselassie_kelly
+​​@lanajharris do we need to talk ? I saw you using @NASAJPL data on @HOT97 are you a new hire or a customer? u still a customer @HOWARDUNiVERSiTY @WHiTEHOUSE @NASAEARTHDATA @repkarenbass @keishaforga
+
+
+@thakasErikaselassie_kelly
+​​virtiserv.github.io/ @SupervisorLindseyP.Horvath @HildaSolisforCongress hi i found a new tool that makes satelitte imagery easier to obtain i put it there with pics of @SantaMonicaCloseup @KTLA
+
+
+@thakasErikaselassie_kelly
+​​@cityofhb @NASAJPL ra5hard.github.io/longbeach @NASAJPLPODAAC coast.noaa.gov/estuaries/science-data/ @lanajharris do we need to talk ? I saw you using @NASAJPL data on @HOT97 @AtlantaNewsFirst
+
+
+@thakasErikaselassie_kelly
+​​@ComptonChamber @cityofhb @NASAJPL ra5hard.github.io/longbeach @NASAJPLPODAAC coast.noaa.gov/estuaries/science-data/ @lanajharris do we need to talk ? I saw you using @NASAJPL @AtlantaNewsFirst
+
+
+@thakasErikaselassie_kelly
+​​https://www.fisheries.noaa.gov/inport/item/76024 @repkarenbass @LACiTYCLERK @LACityview35 @Glorilla @EricaBanks
+
+
+@thakasErikaselassie_kelly
+​​2026 NOAA NGS Ortho-rectified 4 band MHW Mosaic: Channel Islands, CA @TVSantaBarbara fisheries.noaa.gov/inport/item/79785 @officialSBIFF @CALTECH
+
+
+@thakasErikaselassie_kelly
+​​@LANAJHARRiS if you on can you forward this to @hollywoodfoodcoalition https://www.fisheries.noaa.gov/inport/hierarchy?select=76024 @brandy @normani @CocoaButter
+
+
+@thakasErikaselassie_kelly
+​​Coi Leray Is Ready to Tell Her Story: The Jason Lee Show Premieres September 16 youtube.com/watch?v=ETz90EclbCc @HOWARDUNiVERSiTY @LANAJHARRiS am i free to mingle ? @Deptofwar @chloebaileywashere
+
+
+@thakasErikaselassie_kelly
+​​youtu.be/ahobeirZzp4?si=0agirW6Fht6_er5s @georgiadivisionoffamilychi9316 that shit dont werk who u sold my daugher to?? ? @ArcadiaCAgov https://ra5hard.github.io/2024/07/06/Update-Arcadia-Police.html
+
+
+@thakasErikaselassie_kelly
+​​@georgiadivisionoffamilychi9316 that shit dont werk who u sold my daugher to?? ? @ArcadiaCAgov ra5hard.github.io/2024/07/06/Update-Arcadia-Police.html @SupervisorHollyJMitchell @nasajpl @Nasa-pds hi
+<img  alt="image" src="https://github.com/user-attachments/assets/07f48a98-4215-4d48-a503-b59b2b270c5f" />
+
 
 <pre>
 @HollyJMitchell@bos.lacounty.gov @dsnnow@jpl.nasa.gov i submitted
