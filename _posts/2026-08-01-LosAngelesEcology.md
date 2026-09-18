@@ -8,7 +8,7 @@ image: losangelesecostreess.png
 author: "RashardKelly @nasa-jpl"
 mathjax: true
 categories: LA eco ecostress space dsn nsn climate weather
-date:   2026-08-28 0:51:06 
+date:   2026-09-13 0:51:06 
 ---
 
 <picture itemprop="productionCompany" itemtype="https://schema.org/Organization">
@@ -23,6 +23,19 @@ date:   2026-08-28 0:51:06
 
  -   [![Twitter Follow](https://img.shields.io/badge/Social-@RepKarenBass__-blue?style=social&logo=X)](https://twitter.com/@RepKarenBass)
  -   [![Twitter Follow](https://img.shields.io/badge/Social-@NASAJPL__-blue?style=social&logo=X)](https://twitter.com/@NASAJPL)
+
+@cityoflosangeles [ @emit-sds AST_09T_00401092026043917_20260224060400](https://search.earthdata.nasa.gov/search/granules?p=C3306887110-LPCLOUD&pg[0][v]=f&pg[0][gsk]=-start_date&g=G4048568473-LPCLOUD&q=emit&sb[0]=-118.42721%2C33.86334%2C-118.03614%2C34.16553&lat=34.3937882&long=-117.98731134038877&zoom=9.483410024314374) @nasa-jpl i want perms from [@cityofnewyork @NewYorkCityCouncil]( https://avirisng.jpl.nasa.gov/greenhouse_gas_mapping.html) for some [aviris photos of nyc](https://avirisng.jpl.nasa.gov/flight_requests.html) @maxar @emit-sds @boeing /// @la-county-isd make sure [@lacmta _Holly J Mitchell_ @nymta](https://boardagendas.metro.net/person/holly-j-mitchell-39c7ff59ec43/) @Maxar-Corp @Maxar-Public @eodis-nasa @Doug-Newman-nasa i dont see any pics of NYC i think @maxar has some data avails in [CSDA @NASA Commercial Satellite Data Acquisition (CSDA)](https://www.earthdata.nasa.gov/learn/webinars/nasa-csda-program-vendor-focus-maxar) // [MAXAR Commercial Satellite Imagery - 2025 Eaton Fire @la-county-isd @nasa-jpl earthdata.nasa.gov/dashboard/data-catalog/la-fires-maxar](https://www.earthdata.nasa.gov/dashboard/data-catalog/la-fires-maxar)
+![https://avirisng.jpl.nasa.gov/img/18_small.png](https://avirisng.jpl.nasa.gov/img/18_small.png)
+![https://avirisng.jpl.nasa.gov/img/banner130213.png](https://avirisng.jpl.nasa.gov/img/banner130213.png) 
+
+[search.earthdata.nasa.gov/search/granules?p=C4184090549](https://search.earthdata.nasa.gov/search/granules?p=C4184090548-ORNL_CLOUD&pg[0][v]=f&pg[0][gsk]=-start_date&q=aviris&sb[0]=-75.50931%2C40.45292%2C-72.85021%2C41.13876&lat=39.640754637357446&long=-71.92373837319725&zoom=6.868816778012009)
+
+<img   alt="image" src="https://github.com/user-attachments/assets/71800c99-377b-43d5-9d35-0b8741ed38e2" />
+
+The AVIRIS-NG sensor collects data that can be used for characterization of the Earth's surface and atmosphere from geometrically coherent spectroradiometric measurements. This data can be applied to studies in the fields of oceanography, environmental science, snow hydrology, geology, volcanology, soil and land management, atmospheric and aerosol studies, agriculture, and limnology. Applications under development include the assessment and monitoring of environmental hazards such as toxic waste, oil spills, and land/air/water pollution. With proper calibration and correction for atmospheric effects, the measurements can be converted to ground reflectance data which can then be used for quantitative characterization of surface features. [@nasa-jpl `READ` @FORATLANTA @cityofnewyork @NewYorkCityCouncil](https://avirisng.jpl.nasa.gov/data.html)
+
+
+![@nasa-jpl `READ` @FORATLANTA @cityofnewyork @NewYorkCityCouncil /aviris.jpl.nasa.gov/ql/25qlook/f250627t01p00r16_geo.jpeg](https://aviris.jpl.nasa.gov/ql/25qlook/f250627t01p00r16_geo.jpeg)
 
 
 <img  alt="LA_RiVER_LONGBEACH_PAC_COAST_HWY_BiOMASS-15" src="https://github.com/user-attachments/assets/aa1ee94e-d5be-44e8-b223-4f4febf77ab8" />
