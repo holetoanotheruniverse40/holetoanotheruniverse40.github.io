@@ -8,7 +8,68 @@ author: "RashardKelly @nasa-jpl"
 permalink: /virtiserv
 ---
 
+[Use Your Heart · SWV](https://youtu.be/bOckbm7TCu4) // [702 - Steelo](https://youtu.be/5ojOERy-mf8?si=hLBG2CCxla6_Jppw) // [Other Side Of The Game performed by Erykah Badu](https://youtu.be/3qpyDUfMq-8) // [Erykah Badu - Next lifetime](https://youtu.be/RxITI3A2KWA) // [Adina Howard - Freak Like Me](https://youtu.be/fdyUqqRfUMk?si=-2djZ1d1-PIvYEBt) // [Soul II Soul - Back To Life `BellyRMX`](https://youtu.be/tlGv94pzRoU) // [Solange - Cranes in the Sky](https://youtu.be/S0qrinhNnOM) // [Nija - Love Like This](https://youtu.be/zekfQq8AI4A) // [H.E.R. - Damage](https://youtu.be/PAFAfhod9TU) // [Alicia Keys - Troubles](https://youtu.be/L8_jt_yQa4Y?si=lLOoU9l-4bfqQHYz) // [Lost Boys - Lifestyles Of The Rich And Shameless](https://youtu.be/USEn5IlZK44?si=I1ehBcwJ8djv_Sg4)
 
+
+
+ -   [![Twitter Follow](https://img.shields.io/badge/Social-@RepKarenBass__-blue?style=social&logo=X)](https://twitter.com/@RepKarenBass)
+ -   [![Twitter Follow](https://img.shields.io/badge/Social-@NASAJPL__-blue?style=social&logo=X)](https://twitter.com/@NASAJPL)
+
+## [Inglewood](https://www.cityofinglewood.org/) community leaders call on [Mayor Butts](https://www.cityofinglewood.org/820/Mayor-James-T-Butts--Bio) to resign
+![https://www.cityofinglewood.org/ImageRepository/Document?documentID=17414](https://www.cityofinglewood.org/ImageRepository/Document?documentID=17414) 
+[@StateOfCalifornia @SacCounty @La-county-isd @CityofLosAngeles - `WATCH` - https://youtu.be/ @nasa-jpl @ussf-orbit](https://youtu.be/OC3Dqv-QrFE?si=gOtPYYcCOTNahEu6)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/0cb5b9b9-e198-415d-bf36-cc75dfe79c74" />
+
+<img   alt="image @StateOfCalifornia @SacCounty @La-county-isd @CityofLosAngeles [Inglewood](https://www.cityofinglewood.org/) community leaders call on [Mayor Butts](https://www.cityofinglewood.org/820/Mayor-James-T-Butts--Bio) to resign  - `WATCH` - https://youtu.be/ @nasa-jpl @ussf-orbit " src="https://github.com/user-attachments/assets/a446d164-f441-4f7a-99a0-048b1bc89a0e" />
+<img   alt=" image @StateOfCalifornia @SacCounty @La-county-isd @CityofLosAngeles [Inglewood](https://www.cityofinglewood.org/) community leaders call on [Mayor Butts](https://www.cityofinglewood.org/820/Mayor-James-T-Butts--Bio) to resign  - `WATCH` - https://youtu.be/ @nasa-jpl @ussf-orbit @Deptofwar @whitehouse image" src="https://github.com/user-attachments/assets/ded17081-5689-416b-ab0e-b34c4a54a406" />
+
+![@StateOfCalifornia @SacCounty @La-county-isd @CityofLosAngeles - `WATCH` - https://youtu.be/ @nasa-jpl @ussf-orbi @USNAVY @code.mil cityofinglewood.org/ImageRepository/Document?documentId=20639 @Deptofwar @whitehouse](https://www.cityofinglewood.org/ImageRepository/Document?documentId=20639)
+
+![https://www.congress.gov/img/svg/congress-gov-logo.svg @doug-newman-nasa @nasa-openscapes @nasa-giss ](https://www.congress.gov/img/svg/congress-gov-logo.svg)
+
+@doug-newman-nasa @nasa-openscapes @nasa-giss [nslookup hostnames in log - clickhere](https://github.com/virtiserv/rashardmro/blob/master/assets/logs/cityhalla.log)
+[@nasa-jpl @nasa @Cityoflosangeles KAREN BASS ](https://www.congress.gov/member/karen-bass/B001270) 
+
+
+
+# MX Records @nasa-jpl @usnavy
+
+jpl.nasa.gov	mail exchanger = 20 mxb-0020b901.gslb.pphosted.com.
+jpl.nasa.gov	mail exchanger = 20 mxa-0020b901.gslb.pphosted.com.
+
+## mxa-0020b901.gslb.pphosted.com.
+
+| Mx Record | mxa-0020b901.gslb.pphosted.com. | 
+| -----------|---------------------------------|
+| IP | 67.231.155.103 | 
+| Status | Success | 
+| Test duration(ms) | 25 | 
+| AS Number | AS22843 | 
+| Organization | Proofpoint, Inc. | 
+| Domain | proofpoint.com | 
+| Country | United States | 
+| Abuse Contact | Network : 67.231.144.0/20<br />Name : Proofpoint ARIN Abuse<br />Email : abuse@proofpoint.com<br />Phone : +1-801-748-4494<br />Address : US, UT, Draper, 13997 S Minuteman Dr, 84020<br />Country: US<br /> | 
+
+## mxb-0020b901.gslb.pphosted.com.
+
+| Mx Record | mxb-0020b901.gslb.pphosted.com. | 
+| -----------|---------------------------------|
+| IP | 67.231.155.103 | 
+| Status | Success | 
+| Test duration(ms) | 20 | 
+| AS Number | AS22843 | 
+| Organization | Proofpoint, Inc. | 
+| Domain | proofpoint.com | 
+| Country | United States | 
+| Abuse Contact | Network : 67.231.144.0/20<br />Name : Proofpoint ARIN Abuse<br />Email : abuse@proofpoint.com<br />Phone : +1-801-748-4494<br />Address : US, UT, Draper, 13997 S Minuteman Dr, 84020<br />Country: US<br /> | 
+
+
+
+# MX Records 
+@SpaceExplorationTechnologies
+spacex.com	mail exchanger = 5 mxb-003ea501.gslb.gpphosted.com.
+spacex.com	mail exchanger = 5 mxa-003ea501.gslb.gpphosted.com.
 
 [@ForAtlanta digitalcommons.georgiasouthern.edu/savannah-signs/411/](https://digitalcommons.georgiasouthern.edu/savannah-signs/411/)
 
