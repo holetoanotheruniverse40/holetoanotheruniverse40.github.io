@@ -12,6 +12,50 @@ mathjax: true
 # Rashard Kelly NasaJpl MRO JUNO iSS [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/)
 
 
+[@ForAtlanta @LA-County-isD `WATCH` DEMO https://youtu.be/bxjD7LcPYZ8](https://youtu.be/bxjD7LcPYZ8) // [@fema @CityOFLOSANGELES @Nasa-jpl `TRY` Eco-Health Relationship Browser @usepa - _epa.gov/enviroatlas/enviroatlas-eco-health-relationship-browser_](https://www.epa.gov/enviroatlas/enviroatlas-eco-health-relationship-browser)
+
+The EPA Office of Research and Development has developed a suite of user-friendly tools within its EnviroAtlas. The Eco-Health Relationship Browser illustrates scientific evidence for linkages between human health and ecosystem services (ES). This demo video shows how to use the relational browser, which moves and changes content as the user selects an ecosystem, ecosystem service, or health outcome bubble. Users can view the wealth of scientific evidence for a linkage (ecosystem to ES, or ES to health outcome) by clicking the i icon. This powerful tool contains scientific evidence from over 500 peer-reviewed articles. [@fema @CityOFLOSANGELES @Nasa-jpl `TRY` Eco-Health Relationship Browser @usepa - _epa.gov/enviroatlas/enviroatlas-eco-health-relationship-browser_](https://www.epa.gov/enviroatlas/enviroatlas-eco-health-relationship-browser)  // [`WATCH` DEMO https://youtu.be/bxjD7LcPYZ8](https://youtu.be/bxjD7LcPYZ8)
+
+
+[connect.na.panasonic.com/toughbook/rugged-laptops-tablets/toughbook-56? @Panasonic-Advanced-Technology](https://connect.na.panasonic.com/toughbook/rugged-laptops-tablets/toughbook-56?srsltid=AU7gw4V9cV3XByzuR6Y_j82sVerLvojvz-59_uU95fgmMnMPLBIwZbeE) // [github.com/virtiserv/EasyGaussianSplatting](https://github.com/virtiserv/EasyGaussianSplatting) <~ @nasa-jpl have the team that works on eyes take a look [github.com/virtiserv/VideoMultiAgents](https://github.com/virtiserv/VideoMultiAgents) @PanasonicConnect   @Panasonic-Advanced-Technology 
+![@forAtlanta how do I earn a lifestyle to buy this @Sony @nasa-jpl @nasa-pds @deptofwar @CityOflosangeles @STATEOFCALiFORNiA connect.na.panasonic.com/hs-fs/hubfs/PCONA%20-%20United%20States/MOB%20-%20Home/MOB%20-%20Rugged%20Computers%20-%20product/MOB%20-%20Rugged%20Computers%20-%20Product%20-%20TOUGHBOOK%2056/MOB_FZ-56-Flat_1440x1440.webp?width=1440&height=1440&name=MOB_FZ-56-Flat_1440x1440.webp](https://connect.na.panasonic.com/hs-fs/hubfs/PCONA%20-%20United%20States/MOB%20-%20Home/MOB%20-%20Rugged%20Computers%20-%20product/MOB%20-%20Rugged%20Computers%20-%20Product%20-%20TOUGHBOOK%2056/MOB_FZ-56-Flat_1440x1440.webp?width=1440&height=1440&name=MOB_FZ-56-Flat_1440x1440.webp) @jaxa @UKSPACEAGENCY @ESA @WHiTEHOUSE @DHs-GOV @cityofnewyork @NewYorkCityCouncil
+
+[@github.com/panasonic got hijacked be gentle @usnavy @deptofwar @cisagov @fbicyber @PanasonicConnect   @Panasonic-Advanced-Technology  @nasa @nasa-jpl ](https://github.com/panasonic)
+<img  alt=" @nasa-jpl image" src="https://github.com/user-attachments/assets/d00a893c-f5b7-4d7c-80a8-1359f8f46ca9" />
+
+<img src="https://ra5hard.github.io/assets/img/luckyGirl.png" alt="@nasa-jpl GM it's [rashard](https://ra5hard.github.io/), I have to say that because whatever the conglomerate of Latrice is I don't know if its monitord or censored . . .@CityOfLosAngeles I'm listening to @blackgirlscode [SZA](https://www.discogs.com/artist/3272791-SZA-2?superFilter=Releases&subFilter=Albums) bc I just need to know ... I'm scared now I hope no one attacks me @deptofwar porn destroyed @Stateofcalifornia its a shell of a good plan @ESA be patient with us @jaxa Central library got crome on super nice pics, its such a waste .... Lemme see how this sesh goes @la-county-isd ...  @howard-university-web-service GM latrice whatever you are" />
+
+![https://images.acer.com/is/image/acer/CB-Spin-511_Magolor_KSP_2-1:Static-KSP-Image-Right-Left-XL @Panasonic-Advanced-Technology ](https://images.acer.com/is/image/acer/CB-Spin-511_Magolor_KSP_2-1:Static-KSP-Image-Right-Left-XL)
+
+@nasa-jpl GM it's [rashard](https://ra5hard.github.io/), I have to say that because whatever the conglomerate of Latrice is I don't know if its monitord or censored . . .@CityOfLosAngeles I'm listening to @blackgirlscode [SZA](https://www.discogs.com/artist/3272791-SZA-2?superFilter=Releases&subFilter=Albums) bc I just need to know ... I'm scared now I hope no one attacks me @deptofwar porn destroyed @Stateofcalifornia its a shell of a good plan @ESA be patient with us @jaxa Central library got crome on [super nice pcs, its such a waste](https://www.lenovo.com/us/en/c/desktops/thinkcentre/m-series/?IPromoID=LEN744359&visibleDatas=992%3ATiny)  .... Lemme see how this sesh goes @la-county-isd ...  [@howard-university-web-service GM latrice](https://eyes.nasa.gov/apps/dsn-now/dsn.html) whatever you are  @google @googleworkspace
+
+@nasa-pds just remember I did it for [coral](https://thakarashard.github.io/coral/) . . . 
+
+![ @google @googleworkspace upload.wikimedia.org/wikipedia/commons/9/91/Google_Chrome_logo_and_wordmark_%282015%29.png?utm_source=commons.wikimedia.org&utm_campaign=index&utm_content=thumbnail_unscaled](https://upload.wikimedia.org/wikipedia/commons/9/91/Google_Chrome_logo_and_wordmark_%282015%29.png?utm_source=commons.wikimedia.org&utm_campaign=index&utm_content=thumbnail_unscaled)
+
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/soundcloud%253Aplaylists%253A40845890&color=%232572ff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/x_steeloo" title="NostalgicRunaway" target="_blank" style="color: #cccccc; text-decoration: none;">NostalgicRunaway @google @googleworkspace</a> · <a href="https://soundcloud.com/x_steeloo/sets/sza-z-full-album" title="SZA - Z (Full Album)" target="_blank" style="color: #cccccc; text-decoration: none;">SZA - Z (Full Album)</a></div>
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A1413792211&color=%232572ff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/waystoloveu" title="waystoloveu" target="_blank" style="color: #cccccc; text-decoration: none;">waystoloveu @google @googleworkspace</a> · <a href="https://soundcloud.com/waystoloveu/sza-sos-full-album" title="SZA - Sos Full Album" target="_blank" style="color: #cccccc; text-decoration: none;">SZA - Sos Full Album</a></div>
+
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A1390084471&color=%232572ff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/waystoloveu" title="waystoloveu" target="_blank" style="color: #cccccc; text-decoration: none;">waystoloveu  @google @googleworkspace </a> · <a href="https://soundcloud.com/waystoloveu/sza-ctrl-full-album" title="Sza - Ctrl Full Album" target="_blank" style="color: #cccccc; text-decoration: none;">Sza - Ctrl Full Album</a></div>
+
+
+
+[Coldcut Solid Steel Mix - Politics Concerns Everything You Do (2001) @nasa-pds u know they work @nasa-jpl @asu _`mySus`_](https://youtu.be/WC6y8lf8Lak?list=RDWC6y8lf8Lak)
+![https://coldcut.net/wp-content/uploads/2016/11/solidsteelbanner.jpg](https://coldcut.net/wp-content/uploads/2016/11/solidsteelbanner.jpg) 
+
+---
+
+
+### HOT 97 News! 9/18/26
+[`WATCH` - youtu.be/YYj_DTTZzJ8?si=odd1Y53IWir6C72h](https://youtu.be/YYj_DTTZzJ8?si=odd1Y53IWir6C72h)
+`​​ @NASA-JPL just checking in on #Virtiserv @lanajharris a member of #LAtrice org @HowardUniversity @repkarenbass `
+<img   alt="image" src="https://github.com/user-attachments/assets/02b5f2bf-a45f-4a01-8af1-6fb784d84200" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/c57d7c0a-93e2-45bf-9703-ef367ea1eabd" />
+
 
 @doug-newman-nasa @nasa-openscapes @nasa-giss [nslookup hostnames in log - clickhere](https://github.com/virtiserv/rashardmro/blob/master/assets/logs/cityhalla.log)
 sad @nasa-jpl @nasa 
