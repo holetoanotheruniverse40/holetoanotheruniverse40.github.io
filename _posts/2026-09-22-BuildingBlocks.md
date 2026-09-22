@@ -21,6 +21,19 @@ MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt - gi
   
 </picture>
 
+
+<img  alt="image" src="https://github.com/user-attachments/assets/e20c03b8-1552-44a9-9599-67e77839d977" />
+ENCYCLOPEDIC ENTRY
+Rapids [https://education.nationalgeographic.org/resource/rapids/](https://education.nationalgeographic.org/resource/rapids/)
+@natgeosociety i think you can make this more readable, there is an awful web design trend i think is coming from TheDisTrictOfColumbia . . . Content Management Systems were invented in @StateOfCalifornia, i have been working with them since 2002 in Berkeley and i see all the post being too top fold image heavy and i am in a rut and not reading a lot of sites i used to love ... plz fwd and share [Alist Apart -  Topic: Information Architecture @nasa-pds @cityoflosangeles](https://alistapart.com/blog/topic/information-architecture/)
+
+[science.nasa.gov/photojournal/perseverances-view-of-turquoise-bay/](https://science.nasa.gov/photojournal/perseverances-view-of-turquoise-bay/) vs [web.archive.org/web/*/photojournal.nasa.gov*](https://web.archive.org/web/*/photojournal.nasa.gov*) @nasa-pds the @internetarchive has been purged, hopefully `photojournal.nasa.gov` will recover during replication i wanted to illustrate whats making the .gov web boring in sciences we are presenting to the public @deptofwar @whitehouse @nasa-giss @nasa-jpl 
+
+
+[figma.com/resource-library/`web-design-trends @blackgirlscode ` /](https://www.figma.com/resource-library/web-design-trends/)
+<img  alt="image" src="https://github.com/user-attachments/assets/a0b5b6c2-afdd-4fa3-9aa0-97f5282bb2ba" />
+
+
 ![image - RASHARDIMANKELLY PRACTIFCEMAD](https://github.com/user-attachments/assets/5be21c81-f8bd-4505-b33f-2fe7c7e1350e)
 ![https://science.nasa.gov/mission/mars-2020-perseverance/ingenuity-mars-helicopter/](https://www.google.com/logos/fnbx/ingenuity/heli_dark.gif)
 
