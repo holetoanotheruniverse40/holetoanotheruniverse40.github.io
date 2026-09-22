@@ -8,7 +8,325 @@ author: "RashardKelly @nasa-jpl"
 permalink: /virtiserv
 ---
 
-[Use Your Heart · SWV](https://youtu.be/bOckbm7TCu4) // [702 - Steelo](https://youtu.be/5ojOERy-mf8?si=hLBG2CCxla6_Jppw) // [Other Side Of The Game performed by Erykah Badu](https://youtu.be/3qpyDUfMq-8) // [Erykah Badu - Next lifetime](https://youtu.be/RxITI3A2KWA) // [Adina Howard - Freak Like Me](https://youtu.be/fdyUqqRfUMk?si=-2djZ1d1-PIvYEBt) // [Soul II Soul - Back To Life `BellyRMX`](https://youtu.be/tlGv94pzRoU) // [Solange - Cranes in the Sky](https://youtu.be/S0qrinhNnOM) // [Nija - Love Like This](https://youtu.be/zekfQq8AI4A) // [H.E.R. - Damage](https://youtu.be/PAFAfhod9TU) // [Alicia Keys - Troubles](https://youtu.be/L8_jt_yQa4Y?si=lLOoU9l-4bfqQHYz) // [Lost Boys - Lifestyles Of The Rich And Shameless](https://youtu.be/USEn5IlZK44?si=I1ehBcwJ8djv_Sg4)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/417ed31e-466e-4b5f-b01f-01a1afa3f934" />
+
+
+[Trap Or Die · Young Jeezy · Bun B](https://youtu.be/SzHCdn7igPk?list=RDSzHCdn7igPk) // [David Banner - Like A Pimp  ft. Lil' Flip](https://youtu.be/MKGQ5cIw_ew?si=eXrM2UkvNJOA7o8F) // [JAŸ-Z - What More Can I Say](https://youtu.be/ws2lAMea-Is?list=RDSzHCdn7igPk) // [Southern Vangard Radio Episode 458 `WATCH` - https://youtu.be/LVTa9L241DY](https://youtu.be/LVTa9L241DY) // [Flip The Script - Book Preview](https://youtu.be/xzssdBMPST0) // [J Dilla - The Shining (Promo)](https://youtu.be/2ujXj-uCeiE?list=RD2ujXj-uCeiE)
+
+![https://mars.nasa.gov/layout/smd/assets/nasa-logo.svg](https://mars.nasa.gov/layout/smd/assets/nasa-logo.svg)
+
+---
+
+
+![https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01937/ids/edr/browse/fcam/FRF_1937_0838912642_919ECM_N0900000FHAZ00206_01_295J01_1200.jpg](https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01937/ids/edr/browse/fcam/FRF_1937_0838912642_919ECM_N0900000FHAZ00206_01_295J01_1200.jpg)
+
+# Anomolie @USSF-ORBiT @NASA-PDS
+[https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01982/ids/edr/browse/fcam/FLF_1982_0842894333_441ECM_N0910970FHAZ02008_07_095J01_1200.jpg](https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01982/ids/edr/browse/fcam/FLF_1982_0842894333_441ECM_N0910970FHAZ02008_07_095J01_1200.jpg)
+![https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01982/ids/edr/browse/fcam/FLF_1982_0842894333_441ECM_N0910970FHAZ02008_07_095J01_1200.jpg](https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01982/ids/edr/browse/fcam/FLF_1982_0842894333_441ECM_N0910970FHAZ02008_07_095J01_1200.jpg)
+
+
+#  Front Left Hazard Avoidance Camera (Hazcam)
+@nasa-pds arm pics 
+
+
+![https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01981/ids/edr/browse/fcam/FLF_1981_0842807549_727ECM_N0910970FHAZ00215_01_275J01_1200.jpg](https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01981/ids/edr/browse/fcam/FLF_1981_0842807549_727ECM_N0910970FHAZ00215_01_275J01_1200.jpg)
+![https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01976/ids/edr/browse/fcam/FLF_1976_0842367348_066ECM_N0910806FHAZ02008_10_095J02_1200.jpg](https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01976/ids/edr/browse/fcam/FLF_1976_0842367348_066ECM_N0910806FHAZ02008_10_095J02_1200.jpg) 
+
+### Why [Chris](https://chrisbrown.fandom.com/wiki/Chris_Brown) [Brown](https://en.wikipedia.org/wiki/Talk:Chris_Brown) Just Rejected His Own State Honor [`Query` = `Chris Brown`](https://www.google.com/search?sca_esv=f0da1ac9b7a45388&rlz=1CASLJZ_enUS1233&sxsrf=APpeQnu9nRE2O20khoaeQJSH2qhjzaHh5A:1790042249228&udm=2&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832VTJOOCxW_fyN-Q_ezyf8gLZhoVnym8adqD7lVa5VazpBml1fU3A7DJSeYYIw7Ru-0IfSG8OiAq-y2FJ_WzTNunw47yLgZqTMacgtkngEuvZt6THVvVL15Y6Mi8kRs3iJMBja9_6nNbrabDz_RexNX1OLmQo24M8fadNk2TzYydDEloelw&q=chris+brown&sa=X&ved=2ahUKEwicpJeDi4GXAxUnOUQIHUdeGpgQtKgLegQIIxAB&cshid=1790042421542805&biw=1414&bih=945&dpr=1#ip=1)
+
+@blackgirlscode check on the situation , worst case he's not offended anyone else! @disney 
+[`WATCH` - youtu.be/-9h95lDvTac](https://youtu.be/-9h95lDvTac) /////////// [J Dilla - The Shining (Promo)](https://youtu.be/2ujXj-uCeiE?list=RD2ujXj-uCeiE) ////
+[LA Graffiti / FX CREW & STP CREW @ 3:55 - 50 YEARS OF HIPHOP MURAL 3/2023 Monstroe @ 13:02](https://youtu.be/jd-5KIRUtAw) // [Atlanta Style Writing - Influential Graffiti Artists Test Their Skills](https://youtu.be/l9GahWY_-wY) // [FX CREW Graffiti Writers Crew New York, 1998 VHS documentary](https://youtu.be/2SojebL03K0) // [H.E.R. on Being California’s Most Talented Kid, Favorite Filipino Food & New Movie Forgotten Island](https://youtu.be/WmjIOrhBDIs)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/3d8b9792-906e-4be6-94ea-e3b56ca49dbf" />
+<img alt="image" src="https://github.com/user-attachments/assets/ff60a731-ba68-482c-b96b-cc6a17bbb31a" />
+<img alt="image" src="https://github.com/user-attachments/assets/053df9ee-b1ff-46f0-816b-1441255c14e0" />
+
+## Documental / TATS CRU The Mural Kings
+[`WATCH` - https://youtu.be/pmgDIGtamFA](https://youtu.be/pmgDIGtamFA) f a in the url ! [@Blackgirlscode - freeagentscrew.com](https://freeagentscrew.com/)
+<img  alt="image" src="https://github.com/user-attachments/assets/b58ad7e7-eff1-4f32-b4a5-527b4533313c" />
+![https://freeagentscrew.com/wp-content/uploads/2024/08/2024-FA-Site-header.jpg](https://freeagentscrew.com/wp-content/uploads/2024/08/2024-FA-Site-header.jpg) 
+
+# [Dekae](https://freeagentscrew.com/tag/dekae/) FA, Inkheads - Miami, March 2023
+[`WATCH` - youtu.be/Zg9H7urB3kk](https://youtu.be/Zg9H7urB3kk)
+DEKAE was one of February 2023's guest jurists for the hand style battles we host on the Handselecta Instagram. 
+
+He started writing in Miami, 1983. We chat about his personal history, his traveling and photo trading in the days before the internet and his mixed feelings and responsibility around being part of the early wave of graffiti on the internet as part of the crew that borough us 12ozProphet.com
+<img alt="image" src="https://github.com/user-attachments/assets/8e9504e4-4945-4ce2-a41f-ee432599cebc" />
+
+## 🔴 Madina Live Today  بث مباشر المدينة المنورة
+[`WATCH` Masjid An Nabawi youtu.be/aftJ8mH3Dlc](https://youtu.be/aftJ8mH3Dlc)
+<img  alt="image" src="https://github.com/user-attachments/assets/bc506325-8512-4aba-b9ef-d4f9497826f3" />
+
+
+### Southern Vangard Radio Episode 458
+
+[Southern Vangard Radio Episode 458 `WATCH` - https://youtu.be/LVTa9L241DY](https://youtu.be/LVTa9L241DY)
+<img alt="image" src="https://github.com/user-attachments/assets/e37b8268-9b25-4f34-91f0-4661ed52c33c" />
+<img   alt="image" src="https://github.com/user-attachments/assets/aedff3fb-24ee-4ab8-8783-d5eac3a24500" />
+
+## Mars Perseverance Sol 23: Parachute Up-Look Camera B
+[https://mars.nasa.gov/mars2020/multimedia/raw-images/EBE_0023_0668979712_129ECM_N0030770EDLC00023_0020LUJ](https://mars.nasa.gov/mars2020/multimedia/raw-images/EBE_0023_0668979712_129ECM_N0030770EDLC00023_0020LUJ)
+![https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/00023/ids/edr/browse/edl/EBE_0023_0668979712_129ECM_N0030770EDLC00023_0020LUJ01_1200.jpg](https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/00023/ids/edr/browse/edl/EBE_0023_0668979712_129ECM_N0030770EDLC00023_0020LUJ01_1200.jpg)
+![https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/00121/ids/edr/browse/edl/ESF_0121_0677684555_262ECM_N0041250EDLC00120_0010LUJ01_1200.jpg](https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/00121/ids/edr/browse/edl/ESF_0121_0677684555_262ECM_N0041250EDLC00120_0010LUJ01_1200.jpg)
+
+
+![@foratlanta @gatech - @BLACKGiRLSCODE - https://cdn.star.nesdis.noaa.gov/GOES19/GLM/SECTOR/se/EXTENT3/GOES19-SE-EXTENT3-600x600.gif rashard @nasa-jpl @nasa-pds](https://cdn.star.nesdis.noaa.gov/GOES19/GLM/SECTOR/se/EXTENT3/GOES19-SE-EXTENT3-600x600.gif)
+
+![@howard-university-web-services https://cdn.star.nesdis.noaa.gov/GOES18/GLM/SECTOR/psw/EXTENT3/GOES18-PSW-EXTENT3-600x600.gif](https://cdn.star.nesdis.noaa.gov/GOES18/GLM/SECTOR/psw/EXTENT3/GOES18-PSW-EXTENT3-600x600.gif) 
+
+![https://cdn.star.nesdis.noaa.gov/GOES18/ABI/FD/DMW/20262581900_GOES18-ABI-FD-DMW-1808x1808.jpg](https://cdn.star.nesdis.noaa.gov/GOES18/ABI/FD/DMW/20262581900_GOES18-ABI-FD-DMW-1808x1808.jpg) 
+
+![https://cdn.star.nesdis.noaa.gov/GOES18/ABI/CONUS/DayNightCloudMicroCombo/GOES18-CONUS-DayNightCloudMicroCombo-625x375.gif](https://cdn.star.nesdis.noaa.gov/GOES18/ABI/CONUS/DayNightCloudMicroCombo/GOES18-CONUS-DayNightCloudMicroCombo-625x375.gif)
+
+storms over the fertile valley [@stateofcalifornia](https://cdn.star.nesdis.noaa.gov/GOES18/ABI/CONUS/GEOCOLOR/GOES18-CONUS-GEOCOLOR-625x375.gif) - rashard @nasa-jpl @eodis-nasa @blackgirlscode [Trap Or Die · Young Jeezy · Bun B](https://youtu.be/SzHCdn7igPk?list=RDSzHCdn7igPk)
+
+![https://cdn.star.nesdis.noaa.gov/GOES18/ABI/CONUS/GEOCOLOR/GOES18-CONUS-GEOCOLOR-625x375.gif](https://cdn.star.nesdis.noaa.gov/GOES18/ABI/CONUS/GEOCOLOR/GOES18-CONUS-GEOCOLOR-625x375.gif)
+
+[Pubic Enemy · A Tribe Called Quest](https://youtu.be/M2fqWjKlPpo?si=e-_zgldIpi8U0gYy) // [Area - De LA SouL](https://youtu.be/PxiVxvbb3QY?si=_EeB0mvPOBO4eWAJ) // [OJ Da Juiceman - Frank Sinatra](https://youtu.be/XCz2BhlS1YM?si=2qj3gPEDmfGcpNQ2) // [
+Oj Da Juiceman "Cop A Chicken" (Unreleased) (WSHH Exclusive - Official Music Video)](https://youtu.be/zo_Po1jUhh4) // [OJ Da Juiceman - Make Tha Trap Say Aye ft. Gucci Mane (Official Video)](https://youtu.be/JgCoHhsW2Is?si=gBZtsjPg1elgRXDA) // [Dreezy - Chanel Slides ft. Kash Doll](https://youtu.be/mpAdintyiV8)
+
+# [Mars](https://youtu.be/SKlbDtWYHJk) Exploration Program
+NASA's Mars Exploration Program includes current missions Odyssey, MRO, Mars Express, MSL, InSight, and Mars 2020 [READMORE](https://pds-geosciences.wustl.edu/missions/mep/index.htm)
+
+
+
+
+## Mars Perseverance Sol 121: Descent Stage Down-Look Camera
+[@emit-sds @blackgirlscode mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/00121/ids/edr/browse/edl/ESF_0121_0677684555_262ECM_N0041250EDLC00120_0010LUJ01_1200.jpg](https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/00121/ids/edr/browse/edl/ESF_0121_0677684555_262ECM_N0041250EDLC00120_0010LUJ01_1200.jpg)
+![https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/00121/ids/edr/browse/edl/ESF_0121_0677684555_262ECM_N0041250EDLC00120_0010LUJ01_1200.jpg](https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/00121/ids/edr/browse/edl/ESF_0121_0677684555_262ECM_N0041250EDLC00120_0010LUJ01_1200.jpg)
+
+# MArtian Eclipse 
+## Mars Perseverance Sol 1948:
+@nasa-jpl I think its Phobos , it was not clear in the raw images desc . . . @nasa-pds this was this month but there was one in MAy 
+_A Martian Eclipse: Phobos Crosses the Sun_ May 24, 2026 [Link](https://science.nasa.gov/image-article/apod-2026-may-24-a-martian-eclipse-phobos-crosses-the-sun/)
+I don't know the schedule yet @cbs-news-data phobos is lumpy if that helps 
+Left Mastcam-Z Camera [Link](https://mars.nasa.gov/mars2020/multimedia/raw-images/ZL7_1948_0839864813_757EBY_N0910000ZCAM01576_1100LMJ)
+
+
+<img   alt="aed37f20-2577-43db-a42f-162434cde02a @libraryofcongress @nasa-jpl @eodis-nasa @emit-sds @nasa-pds @nasa-giss _" src="https://github.com/user-attachments/assets/12386d61-2bd7-4f3a-ad3e-83d498cab5b1" />
+<img alt="image @libraryofcongress @nasa-jpl @eodis-nasa @emit-sds @nasa-pds @nasa-giss " src="https://github.com/user-attachments/assets/6f2d5977-bc94-4742-a92f-d874185cea9f" />
+
+![https://user-images.githubusercontent.com/717735/205517116-7a5d0f41-7acc-441e-94ba-2e541bfb7fc8.png](https://user-images.githubusercontent.com/717735/205517116-7a5d0f41-7acc-441e-94ba-2e541bfb7fc8.png)
+
+@doug-newman-nasa I'm looking for ice sat visualizers but coming up short. Just letting you know I checked in @eodis-nasa hi @la-county-isd @cityoflosangeles @ForAtlanta ... hi @blackgirlscode I'm n this dept as well now [earthaccess.readthedocs.io/en/latest](https://earthaccess.readthedocs.io/en/latest/)
+
+![https://earthaccess.readthedocs.io/en/latest/images/earthaccess_environmental_horst.jpg](https://earthaccess.readthedocs.io/en/latest/images/earthaccess_environmental_horst.jpg)
+
+
+[Living Proof · Bad Meets Evil](https://youtu.be/DNCJmLCEL9E) // [Jaylib - The Red (J Dilla Remix)](https://youtu.be/j2N2UiJK3Po) // [Off Air: Beyond The Mic ft. Kash Doll  Relationships, Detroit & Keeping It Real](https://youtu.be/4Rv7BI1xZe0)  /// [I Just Wanna Be Your Girl · Chapter 8](https://youtu.be/B2rKsLgPHfM) // [Eminem - Bad Guy](https://youtu.be/F9bSo8CBD5I?list=PLPS8Md-CVcrERpCtqnLQl0kz5nWtykZ3I) // [Pusha T - Drug Dealers Anonymous Feat. Jay Z ](https://youtu.be/COCpn1W13Kw?list=RDCOCpn1W13Kw) // [Succa Proof - Nipsey Hussle, Victory Lap](https://youtu.be/rQEuF5QI0Q8?list=RDrQEuF5QI0Q8) // [JAŸ-Z, Kanye West - Otis ft. Otis Redding](https://youtu.be/BoEKWtgJQAU?list=RDBoEKWtgJQAU) // [Lil Wayne - 6 Foot 7 Foot ft. Cory Gunz ](https://youtu.be/c7tOAGY59uQ?list=RDc7tOAGY59uQ) // [Lil Wayne - A Milli](https://youtu.be/1Vf4mMCpNY0?list=RDc7tOAGY59uQ) // [Young Jeezy - Lose My Mind ft. Plies](https://youtu.be/Tsmqrk7Wgsk?list=RDTsmqrk7Wgsk) // [T.I. - About The Money ft. Young Thug](https://youtu.be/etfIdtm-OC8?list=RDetfIdtm-OC8) // [Young Jeezy - Leave You Alone (Explicit) ft. Ne-Yo](https://youtu.be/3B3EgW5zvKU?list=RD3B3EgW5zvKU) // [Rich Homie Quan - Type of Way @ForAtlanta](https://youtu.be/-KKbdErJkiY?list=RD-KKbdErJkiY)
+
+---
+
+
+
+# Sentinel satellites – an introduction
+[`READ` - space4climate.com/sentinel-satellites-an-introduction/](https://space4climate.com/sentinel-satellites-an-introduction/) 
+
+@ESA Sentinel has Iceland data 
+@isro I don't know why a guy had an Iceland hat was in @CityOfLosAngeles but @nasa is havein some sort of issue collecting data over Iceland at the very least its @nasa-jpl @nasa-giss and I need someone to know there's a data collection anomolie @doug-newman-nasa [search.earthdata.nasa.gov/search/granules?p=C=emit&](https://search.earthdata.nasa.gov/search/granules?p=C2408750690-LPCLOUD&pg[0][v]=f&pg[0][gsk]=-start_date&q=emit&sb[0]=-21.99162%2C63.99879%2C-15.25414%2C66.67391&lat=56.27271921520382&long=-17.166583934118826&zoom=4.606903687991041)
+
+[@NFL `Rams` and a @UCLA  @nasa-jpl @doug-newman-nasa @asfadmin ]
+![https://i0.wp.com/space4climate.com/wp-content/uploads/COPERNICUS-INFORGRAPHIC.png](https://i0.wp.com/space4climate.com/wp-content/uploads/COPERNICUS-INFORGRAPHIC.png) 
+
+
+S1D_EW_GRDM_1SDH_20260918T184228_20260918T184328_004636_008A66_EE30
+[Sentinel-1 @ESA](https://sentiwiki.copernicus.eu/web/s1-mission) • C-Band
+<img  alt="S1D_EW_GRDM_1SDH_20260918T184228_20260918T184328_004636_008A66_EE30 (1)" src="https://github.com/user-attachments/assets/73754ba8-a5ee-4547-9cda-7d3224f73856" />
+
+S1D_IW_GRDH_1SDV_20260916T185822_20260916T185847_004607_00896C_D4B5
+Sentinel-1 • C-Band
+<img   alt="S1D_IW_GRDH_1SDV_20260916T185822_20260916T185847_004607_00896C_D4B5" src="https://github.com/user-attachments/assets/e451db18-fb40-44ba-a38a-374a96ba1cfe" />
+
+S1D_EW_GRDM_1SDH_20260921T074907_20260921T075016_004673_008BAE_DCF5
+Sentinel-1 • C-Band @asfadmin @emit-sds [search.asf.alaska.edu/&dataset=SENTINEL-1](https://search.asf.alaska.edu/#/?zoom=6.489&center=-18.740,63.961&polygon=POLYGON((-23.2914%2063.5508,-13.7819%2063.5508,-13.7819%2066.3698,-23.2914%2066.3698,-23.2914%2063.5508))&resultsLoaded=true&granule=S1D_EW_GRDM_1SDH_20260921T074907_20260921T075016_004673_008BAE_DCF5-GRD_MD&dataset=SENTINEL-1)
+
+<img   alt="S1D_EW_GRDM_1SDH_20260921T074907_20260921T075016_004673_008BAE_DCF5" src="https://github.com/user-attachments/assets/e00ad7a2-67e1-4b74-a48a-a14a944a6e46" />
+
+![https://sentiwiki.copernicus.eu/__attachments/a_c688717dd0338265fa4eb7e8e5172b460d3eb0f58fed2701c03b1f7b02e61ef3/image-20230522-072230.png?cb=488982159e7e689259d10e0ce47c2145](https://sentiwiki.copernicus.eu/__attachments/a_c688717dd0338265fa4eb7e8e5172b460d3eb0f58fed2701c03b1f7b02e61ef3/image-20230522-072230.png?cb=488982159e7e689259d10e0ce47c2145)
+
+
+![https://www.esa.int/eologos/images/sentinel-1_neg.jpg](https://www.esa.int/eologos/images/sentinel-1_neg.jpg) 
+
+<img   alt="image" src="https://github.com/user-attachments/assets/24147ccc-bea5-4bfb-a0a7-b6fb857efef8" />
+
+![ @GuideToIceland hi we had a guy with an Iceland hat on the commuter light rail this mornign a guy with a @NFL `Rams` and a @UCLA hat were with him @nasa-jpl @doug-newman-nasa do we have political issues collecting data over Iceland ? I tried [Emit-SDS](https://earth.jpl.nasa.gov/emit/) & [EcoStress](https://ecostress.jpl.nasa.gov/)  https://ecostress.jpl.nasa.gov/logo.png](https://ecostress.jpl.nasa.gov/logo.png)
+@GuideToIceland hi we had a guy with an Iceland hat on the commuter light rail this mornign a guy with a @NFL `Rams` and a @UCLA hat were with him @nasa-jpl @doug-newman-nasa @asfadmin do we have political issues collecting data over Iceland ? I tried [Emit-SDS](https://earth.jpl.nasa.gov/emit/) & [EcoStress](https://ecostress.jpl.nasa.gov/) 
+
+<img   alt="image @GuideToIceland hi we had a guy with an Iceland hat on the commuter light rail this mornign a guy with a @NFL `Rams` and a @UCLA hat were with him @nasa-jpl @doug-newman-nasa do we have political issues collecting data over Iceland ? I tried [Emit-SDS](https://earth.jpl.nasa.gov/emit/) & [EcoStress](https://ecostress.jpl.nasa.gov/)  " src="https://github.com/user-attachments/assets/db960b24-b077-4e24-be04-3f88bdd45e88" />
+
+
+# Trip to Mars (1924)
+by [Fleischer Studios](https://fleischerstudios.com/) and [Paramount Pictures](https://www.paramountpictures.com/) // [creator:"Fleischer Studios and Paramount Pictures"](https://archive.org/search?query=creator%3A%22Fleischer+Studios+and+Paramount+Pictures%22) @NASA-PDS @
+[imdb.com/title/tt0015431/](https://www.imdb.com/title/tt0015431/) // [director:"Dave Fleischer"](https://archive.org/search?query=director%3A%22Dave+Fleischer%22)
+
+<iframe src="https://archive.org/embed/silent-trip-to-mars" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+
+A Trip to Mars (1918)
+<iframe src="https://archive.org/embed/silent-a-trip-to-mars" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+
+
+
+
+# Gulliver's Travels (1939)
+by [Fleischer Studios](https://fleischerstudios.com/) and [Paramount Pictures](https://www.paramountpictures.com/) // [creator:"Fleischer Studios and Paramount Pictures"](https://archive.org/search?query=creator%3A%22Fleischer+Studios+and+Paramount+Pictures%22)
+### [@Paramount-Engineering @StateOfCalifornia Showdown Ends With Deal](https://www.tmz.com/2026/09/21/paramount-california-settlement-warner-bros-merger/)
+@paramount-engineering , @pp-webhosting @cbs-news-data [`WATCH` - archive.org/details/gullivers-travels-1939 @blackgirlscode @usgs @Nasa-JPL](https://archive.org/details/gullivers-travels-1939) // [Max Fleischer's Color Classics - The Complete Collection](https://archive.org/details/max-fleischers-color-classics)
+
+<iframe src="https://archive.org/embed/gullivers-travels-1939" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+![https://images.squarespace-cdn.com/content/v1/69836b50ccc47d6e999702a9/b4bd29f0-49be-48ba-9f6f-3f93a1265da0/2025+banner.jpg](https://images.squarespace-cdn.com/content/v1/69836b50ccc47d6e999702a9/b4bd29f0-49be-48ba-9f6f-3f93a1265da0/2025+banner.jpg)
+
+<img   alt="image @ForAtlanta @NASA-JPL @doug-Newman-nasa" src="https://github.com/user-attachments/assets/58ba5573-d05e-49a0-9358-f3b1e2aa2172" />
+
+
+## SURVIVING MARS: Planet #4
+[WATCH - youtube.com/watch?v=hLqFbCAu6BI](https://www.youtube.com/watch?v=hLqFbCAu6BI)
+@ForAtlanta @NASA-JPL @doug-Newman-nasa I found this vid from @BurningmanTech YouTube account recs, and thought it should be shared with the lab. I missed the burn and idk who made it to the [playa](https://www.reddit.com/r/BurningMan/comments/1750ich/whats_the_origin_behind_the_word_playa_also_how/?rdt=57776) but the [Black rock observatory](https://www.blackrockobservatory.com/) was built here and I want to work on it for the next burn if the group is compatible @nasa-pds @la-county-isd @cityoflosangeles @USGS 
+<img  alt="image" src="https://github.com/user-attachments/assets/68c934b8-3a92-45b7-ad66-83a8edbdb74e" />
+
+![https://burningman.widen.net/content/nrngax5jkm/jpeg/a2IVI000002jyi12AA-1.jpeg](https://burningman.widen.net/content/nrngax5jkm/jpeg/a2IVI000002jyi12AA-1.jpeg)
+
+
+![https://burningman.widen.net/content/lyn1clkzlg/jpeg/a2IVI000002uM372AE-1.jpeg](https://burningman.widen.net/content/lyn1clkzlg/jpeg/a2IVI000002uM372AE-1.jpeg)
+![https://burningman.widen.net/content/bcfdvovl9x/jpeg/a2IVI000002u2dt2AA-1.jpeg](https://burningman.widen.net/content/bcfdvovl9x/jpeg/a2IVI000002u2dt2AA-1.jpeg)
+![https://burningman.widen.net/content/s5fiimdnat/jpeg/a2IVI000002b4Y92AI-1.jpeg](https://burningman.widen.net/content/s5fiimdnat/jpeg/a2IVI000002b4Y92AI-1.jpeg) 
+
+[@howard-university-web-services @CityOfSantaMonica @LMCO  @blackgirlscode - @nasa-pds `#GREATBEATSCHLOE ` @CityOfLosAngeles https://www.youtube.com/@chloebaileywashere/featured](https://www.youtube.com/@chloebaileywashere/featured)
+@USNAVY @NASA-GiSS @NAsa-pds [Victor Glover](https://www.nasa.gov/wp-content/uploads/2026/09/glover-vj.pdf), Try this Mars Simulator [https://www.zombs-lair.com/martian-gothic-unification](https://www.zombs-lair.com/martian-gothic-unification) @SonyResearch he should know how to run @libRetro at his paygrade
+[https://archive.org/details/martian-gothic](https://archive.org/details/martian-gothic) // [@dEPTOFwAR https://archive.org/download/Centuron-PSX/Martian%20Gothic%20-%20Unification.cue @FBICYBER](https://archive.org/download/Centuron-PSX/Martian%20Gothic%20-%20Unification.cue) // [https://archive.org/download/Centuron-PSX/Martian%20Gothic%20-%20Unification.bin](https://archive.org/download/Centuron-PSX/Martian%20Gothic%20-%20Unification.bin) <~ @deptofwar [aanandmadhav.com/work/emirates-mars-mission](https://aanandmadhav.com/work/emirates-mars-mission)
+@nasa-pds [marssim.space/](https://marssim.space/)  ~< [@sONY @sONYrESEARCH](https://www.jpl.nasa.gov/topics/mars/) the Mars team is a big climate organization. Before people go the monitoring should be stable, more on that later but I put orders in to turn on the earthquake monitoring for safety, I have to formalize it at some point @ESA I'm talking about the landers 
+<iframe src="https://archive.org/embed/psx_martgoth" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+@Sony I was using @libretro to run ridge racer, I used to play brandy Norwood album in my Playstation, since all the game data was loaded into memory. I really don't know what happens on the console scene like in peoples living rooms but someone from @blackgirlscode street team reported that they were able to do it using isos in [RetroArch]()
+### Kash Patel FBI Drama, Hegseth Impeachment & Mitch McConnell Return 
+@deptofwar @dhs-gov @nasa @nasa-jpl @whitehouse hi [@LA-county-isd](https://hr.lacounty.gov/internal-services-department/) [Holly Mitchell](https://www.linkedin.com/in/holly-j-mitchell-5720361b7) we have a launch tonight from Vandenburg [spacex.com/launches/ussf259](https://www.spacex.com/launches/ussf259)
+
+
+
+![https://static.wikia.nocookie.net/marvelvscapcom/images/2/25/XCotA_logo.png](https://static.wikia.nocookie.net/marvelvscapcom/images/2/25/XCotA_logo.png)
+
+<iframe src="https://archive.org/embed/arcade_xmcota" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+### Attorney General Bonta gives update on Paramount merger
+[`WATCH` - youtu.be/CtI1mrJ5Ms4](https://youtu.be/CtI1mrJ5Ms4)
+@paramount-engineering , @pp-webhosting has no public repositories , if you guys can pass @cia and @deptofwar backgroundchecks we can host ya over at @nasa-pds in altadena @podaac! [@cbsi-cbscom](https://podaac.jpl.nasa.gov/) gm @CityOfLosAngeles @la-county-isd 
+
+##### @teslamotors Diner Revolt & Space Weather 
+[See More on rashardgds.github.io/compiling/Tesla-Diner-Revolt/compiling](https://rashardgds.github.io/compiling/Tesla-Diner-Revolt) ////////// [openscape](https://nasa-openscapes.github.io/) // [LAunch Contrib @nasa @nasas-jpl @gofireflyio](https://www.tumblr.com/rashardmro/790632997630214146/rashardsbash?source=share) 
+<img  alt="image" src="https://github.com/user-attachments/assets/08341223-461f-44ef-b3ef-7bf935926124" />
+
+
+[@foratlanta @nasa-pds youtube.com/@ATLChannel26](https://www.youtube.com/@ATLChannel26) [youtu.be/DaeB0UVQz3Q](https://youtu.be/DaeB0UVQz3Q) @cityoflosangles 
+
+<img  alt="image" src="https://github.com/user-attachments/assets/1e40f837-183f-43af-8297-e47356005e55" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/cd41c9c8-42d6-4aa2-905f-591587a9bbac" />
+
+
+@thakasErikaselassie_kelly#1​gm @keishaforga its rashard i want to check if @lanajharris is @RubiRoseVEVO @coileray or @riconasty... im trying to catch up with LatriceFitzpatrick of @HowardUNiVersity she was my last significantO
+Welcome to live chat! Remember to guard your privacy and abide by our community guidelines.
+Learn more@voncherw​#1​🤎💐💐
+@thakasErikaselassie_kelly#1​@chloebaileywashere i saw on @google's business dir that @dance411 was permanantly closed @keishaforga its rashard iWant to check if @lanajharris is @RubiRoseVEVO @coileray or @riconasty @hot97 @v103
+
+[https://www.youtube.com/@HOT97ontv/videos](https://www.youtube.com/@HOT97ontv/videos) @nasa 
+
+<img   alt="image" src="https://github.com/user-attachments/assets/41120a2f-30f8-44f2-8e65-482aa73e5a7b" />
+
+
+<img   alt="image  @nasa-jpl @emit-sds
+ @CityOFlosangeles " src="https://github.com/user-attachments/assets/a10bc6d6-9524-4848-9103-8cc63a9684fe" />
+
+<img  alt="EMIT_L2A_RFL_001_20241127T202619_2433214_001  @nasa-jpl @emit-sds
+ @CityOFlosangeles" src="https://github.com/user-attachments/assets/77f6ab05-0d76-4e04-8326-014d1a7aa8e2" />
+
+
+<img  alt="EMIT_L2A_RFL_001_20260404T172021_2609411_003 @nasa-jpl @emit-sds
+ @CityOFlosangeles " src="https://github.com/user-attachments/assets/ad9492d2-6450-464a-b299-24ad74479a7f" />
+
+
+### Lizzo Grills Jason Lee About Beyoncé, Talks Weight Loss, Lawsuits & Love
+[`WATCH` - https://youtu.be/p2QjxrsD4hw](https://youtu.be/p2QjxrsD4hw)
+<img alt="image" src="https://github.com/user-attachments/assets/9bc847f2-c4cf-4e69-8543-e112a18ec3ea" />
+
+
+@BLACKGiRLSCODE _`Jason Lee?`_ `Vice`Mayor of Stockton @StateOfCalifornia
+see Stockton from our space station peripheral @nasa-jpl @emit-sds
+_District 6 Vice Mayor Jason Lee_ @CityOFlosangeles [stocktonca.gov/government/city_council/district_6.php](https://www.stocktonca.gov/government/city_council/district_6.php)
+<img  alt="image" src="https://github.com/user-attachments/assets/5c7dd253-5f8e-416a-a40a-26d47db7173d" />
+
+EMIT_L1B_RAD_001_20250822T175703_2523412_008 @emit-sds @nasa 
+
+<img alt="EMIT_L1B_RAD_001_20250822T175703_2523412_008" src="https://github.com/user-attachments/assets/67991f81-c1be-4de4-b542-5798a9ff165c" />
+
+@asfadmin `EMIT_L2A_RFL_001_20250822T175703_2523412_008`
+
+<img  alt="EMIT_L2A_RFL_001_20250822T175703_2523412_008" src="https://github.com/user-attachments/assets/2da680ef-4250-49aa-b782-2cf80d230785" />
+
+<img alt="image" src="https://github.com/user-attachments/assets/02d618bd-9019-4b61-bb07-e79015e8dd41" />
+
+<img   alt=" @emit-sds @Cityoflosangeles 4mapping @nasa-pds @usgs image (1)-03" src="https://github.com/user-attachments/assets/60926a93-530f-412b-a6ee-d36b734ebdaa" />
+
+<img alt=" @cityoflosangeles EMIT_L1B_RAD_001_20260525T210941_2614514_002" src="https://github.com/user-attachments/assets/e6c21851-5f6b-4f11-81f3-d63aca908ac2" />
+
+<img  alt=" @BLACKGiRLSCODE @emit-sds @Cityoflosangeles 4mapping @nasa-pds @usgs LA_RiVER_LONGBEACH_PAC_COAST_HWY_BiOMASS-15" src="https://github.com/user-attachments/assets/aa1ee94e-d5be-44e8-b223-4f4febf77ab8" />
+
+## @google `search_query=lana+j+harris`
+### Iran War Base Damage, Rogue AI Bill & Don Jr Wedding Gift 
+The Lana Rundown [US-Iran war: US CENTCOM provides latest update @ajinteractive @deptofwar](https://www.livenowfox.com/video/fmc-7zaos1ovfqahftwp) // [Iran war updates: US says Saudi pipeline to resume as Yemen fighting rages](https://www.aljazeera.com/news/liveblog/2026/9/15/iran-war-live-centcom-refutes-iran-claim-supertanker-hit-hormuz-mines)
+[`watch` - https://youtu.be/e3VkKUq7QeI](https://youtu.be/e3VkKUq7QeI)
+<img   alt="image" src="https://github.com/user-attachments/assets/72238a21-5c71-431c-b20d-2e04ce2a5d40" />
+
+[youtube.com/results?search_query=lana+j+harris](https://www.youtube.com/results?search_query=lana+j+harris) // [Lana Harris Entertainment Reel 2024](https://www.youtube.com/watch?v=EtBennWOJn4)
+<img   alt="image" src="https://github.com/user-attachments/assets/8a5c4c96-5507-409e-a722-494864928880" />
+
+[If Your Girl Listens To RUBI ROSE, You're COOKED! Here's Why...](https://youtu.be/3rDWxCy-8co) @naSA-JPL is rubi rose music y harvey cant get me healthily rebadged ? @disney [@codepen .io/virtiserv/pen/myRGwLL](https://codepen.io/virtiserv/pen/myRGwLL)
+<img alt="image" src="https://github.com/user-attachments/assets/fd39848b-db31-4b9b-9a71-3bcfe448af13" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/1a0db2ef-1b87-4f6e-a41b-959fab44f41c" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/1bdc9dd5-4054-4d05-89d0-60f43df4adcf" />
+
+[@nasa-pds](https://codepen.io/virtiserv/pen/myRGwLL) <~ is that you and you wear old makeup to work ? @nasa-JPL 
+<img   alt="image" src="https://github.com/user-attachments/assets/c1c117e2-a74f-42cf-a0f9-20a86c0d98ab" />
+
+
+@howard-university-web-services plz fwd to Latrice or Lana [If Your Girl Listens To `RUBI ROSE`, You're COOKED! Here's Why...](https://youtu.be/3rDWxCy-8co)  @blackgirlscode
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3rDWxCy-8co?si=LM74qZcRBpnHqS-6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A178346799&color=%233badff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/lhmusic" title="LH" target="_blank" style="color: #cccccc; text-decoration: none;">LH</a> · <a href="https://soundcloud.com/lhmusic/j-dilla-pet-sounds-the-key-of-dee-album" title="J Dilla - Pet Sounds in the Key of Dee" target="_blank" style="color: #cccccc; text-decoration: none;">J Dilla - Pet Sounds in the Key of Dee</a></div>
+
+<iframe title="vimeo-player" src="https://player.vimeo.com/video/741235082?h=2c16b6d0c3" width="640" height="360" frameborder="0" referrerpolicy="strict-origin-when-cross-origin" allow="autoplay; fullscreen; picture-in-picture; clipboard-write; encrypted-media; web-share"   allowfullscreen></iframe>
+
+[@blackgirscode @nasa-pds @cityoflosangeles @longbeachinnovationteam @saccounty LanderVisionSystemCamera_PerseveranceLandingMars2020.gif](https://dn721802.ca.archive.org/0/items/lander-vision-system-camera-perseverance-landing-mars-2020/LanderVisionSystemCamera_PerseveranceLandingMars2020.gif) /// [ @nasa-pds lander-vision-system-camera-perseverance-landing-mars-2020/CuriosityWheelCheck_BLACKGiRLSCODENORMANiLATRiCE_LESSONPLANSmsl_redops_ods_surface_sol_04963a.mp4](https://dn721802.ca.archive.org/0/items/lander-vision-system-camera-perseverance-landing-mars-2020/CuriosityWheelCheck_BLACKGiRLSCODENORMANiLATRiCE_LESSONPLANSmsl_redops_ods_surface_sol_04963a.mp4)
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A282331451&color=%2321caff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/iamhermusic" title="H.E.R." target="_blank" style="color: #cccccc; text-decoration: none;">H.E.R.</a> · <a href="https://soundcloud.com/iamhermusic/v1-03-facts" title="Facts" target="_blank" style="color: #cccccc; text-decoration: none;">Facts</a></div>
+
+[<video  preload="auto" width="auto" height="400px" controls src="https://archive.org/download/lander-vision-system-camera-perseverance-landing-mars-2020/LanderVisionSystemCamera_PerseveranceLandingMars2020.mp4" />](https://archive.org/download/lander-vision-system-camera-perseverance-landing-mars-2020/LanderVisionSystemCamera_PerseveranceLandingMars2020.mp4)
+
+[archive.org/download/lander-vision-system-camera-perseverance-landing-mars-2020/Trump%20Arrives%20in%20Dallas%20to%20Lead%20Historic%20Republican%20Midterm%20Convention.mp4](https://archive.org/download/lander-vision-system-camera-perseverance-landing-mars-2020/Trump%20Arrives%20in%20Dallas%20to%20Lead%20Historic%20Republican%20Midterm%20Convention.mp4)
+
+<iframe title="vimeo-player" src="https://player.vimeo.com/video/1158008518?h=fd1531a392" width="640" height="360" frameborder="0" referrerpolicy="strict-origin-when-cross-origin" allow="autoplay; fullscreen; picture-in-picture; clipboard-write; encrypted-media; web-share"   allowfullscreen></iframe>
+
+
+<img  alt="Sol 5017 _ WHeel Arm TerrainCheckRight Navigation Camera_RASHARD_iMANKELLY_NASA_JPL_ViRTiSERV_LANA_LATRiCE" src="https://github.com/user-attachments/assets/fbe24fa0-2fab-4ff0-9d4d-bed500c5f1f5" />
+
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A282331451&color=%2321caff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/iamhermusic" title="H.E.R." target="_blank" style="color: #cccccc; text-decoration: none;">H.E.R.</a> · <a href="https://soundcloud.com/iamhermusic/v1-03-facts" title="Facts" target="_blank" style="color: #cccccc; text-decoration: none;">Facts</a></div>
+
+![https://mars.nasa.gov/msl-raw-images/proj/msl/redops/ods/surface/sol/05017/opgs/edr/ncam/NRB_842870430EDR_S1250198NCAM00594M_.JPG](https://mars.nasa.gov/msl-raw-images/proj/msl/redops/ods/surface/sol/05017/opgs/edr/ncam/NRB_842870430EDR_S1250198NCAM00594M_.JPG)
+
+![https://mars.nasa.gov/msl-raw-images/proj/msl/redops/ods/surface/sol/05019/opgs/edr/ncam/NRB_843062381EDR_S1250534NCAM00594M_.JPG](https://mars.nasa.gov/msl-raw-images/proj/msl/redops/ods/surface/sol/05019/opgs/edr/ncam/NRB_843062381EDR_S1250534NCAM00594M_.JPG)
+![https://mars.nasa.gov/msl-raw-images/proj/msl/redops/ods/surface/sol/05019/opgs/edr/ncam/NLB_843048039EDR_S1250534NCAM00593M_.JPG](https://mars.nasa.gov/msl-raw-images/proj/msl/redops/ods/surface/sol/05019/opgs/edr/ncam/NLB_843048039EDR_S1250534NCAM00593M_.JPG) 
+
+<img alt="ezgif com-resize (1)" src="https://github.com/user-attachments/assets/ccc7998d-fb23-49be-bffd-9f68457643a6" />
+
+
+[Use Your Heart · SWV](https://youtu.be/bOckbm7TCu4) // [702 - Steelo](https://youtu.be/5ojOERy-mf8?si=hLBG2CCxla6_Jppw) // [Other Side Of The Game performed by Erykah Badu](https://youtu.be/3qpyDUfMq-8) // [Erykah Badu - Next lifetime](https://youtu.be/RxITI3A2KWA) // [Adina Howard - Freak Like Me](https://youtu.be/fdyUqqRfUMk?si=-2djZ1d1-PIvYEBt) // [Soul II Soul - Back To Life `BellyRMX`](https://youtu.be/tlGv94pzRoU) // [Solange - Cranes in the Sky](https://youtu.be/S0qrinhNnOM) // [Nija - Love Like This](https://youtu.be/zekfQq8AI4A) // [H.E.R. - Damage](https://youtu.be/PAFAfhod9TU) // [Alicia Keys - Troubles](https://youtu.be/L8_jt_yQa4Y?si=lLOoU9l-4bfqQHYz) // [Lost Boys - Lifestyles Of The Rich And Shameless](https://youtu.be/USEn5IlZK44?si=I1ehBcwJ8djv_Sg4) // [CoLD SToRAGE - Messij](<https://youtu.be/4uQnXvRndcE>) // [LateNightTales - Bonobo](<https://youtu.be/leeFJHgCRlw?si=rrStsO_T4_uv1uZA>) // [The Chemical Brothers - We've Got To Try](<https://youtu.be/mRfSM-lv55I>) // [T.N.T. · AC/DC](<https://youtu.be/NhsK5WExrnE>) // [Houses of the Holy · Led Zeppelin](<https://youtu.be/k77oT3jQ23g?si=vn0F4Lh1vGOIVbvu>) // [Journey - Wheel in the Sky](<https://youtu.be/MxGEVIvSFeY>) // [REO Speedwagon - Keep on Loving You](<https://youtu.be/wJzNZ1c5C9c?si=KeZAIeI3W3KKFALh>) // [YES - Owner of a Lonely Heart](<https://youtu.be/SVOuYquXuuc?si=3mbyOuUwtB2Nowvs>) // [The Clash - Rock the Casbah](<https://youtu.be/bJ9r8LMU9bQ?si=Csoqq7yLa4DT5LfM>) // [Heart - "Barracuda"](<https://youtu.be/PeMvMNpvB5M>) // [Dire Straits - Money For Nothing](<https://youtu.be/wTP2RUD_cL0>) // [The Fact Is (I Need You)](<https://youtu.be/4YnnIsdSwic?si=PNZL2QVwxm2LRMKM>) // [Xscape - Who Can I Run To ](<https://youtu.be/xLjyPBQk_Os>) // [Xscape - Understanding ](<https://youtu.be/HR5J5jUDcnA>) // [Monica - Before You Walk Out Of My Life](<https://youtu.be/Ptiz0KtR16E>) // [Brandy - Sittin' Up in My Room](<https://youtu.be/yge2PqEZZJo>) // [Gang Starr - Mass Appeal](<https://youtu.be/y9lNbNGbo24>) // [Black Sheep - Flavor Of The Month](<https://youtu.be/F01fzPwBwc4>) // [Black Sheep - The Choice Is Yours](<https://youtu.be/K9F5xcpjDMU>) // [Method Man - All I Need (Razor Sharp Remix) ft. Mary J. Blige](<https://youtu.be/XW1HNWqdVbk?si=65oMB-2_q6Nw_fFK>) // [Common - Come Close](<https://youtu.be/dbbRrNHJ4Lg>) // ["The One" by Tokyo Jetz.](<https://youtu.be/dMONFTXuMhA>) // [LightSkinKeisha - "On Read" FEAT. Kash Doll ](<https://youtu.be/E5RY0GUFNrs>) // [MEGAN THEE STALLION - \_ ](<https://youtu.be/gvSD05Yu7Ig>)[*STALLI FREESTYLE*](<https://youtu.be/gvSD05Yu7Ig>)[ ](<https://youtu.be/gvSD05Yu7Ig>) // [All-Women Cypher Featuring Latto, Flo Milli, Monaleo, Maiya The Don and Mello Buckzz](<https://youtu.be/fIs7Cv1JQdM>) // [\#MeganMonday: I Think I love Her Freestyle](<https://youtu.be/t6sHHHU82aQ?si=hugqBDchccffHYol>) // [Rico Nasty - PEPPER](<https://youtu.be/hpeXv2BbvpY>) // [Jill Scott - Norf Side](<https://youtu.be/rRCxe0og5Js>) // [DJ Khaled - I Got the Keys](<https://youtu.be/SFLSOIufuhM>) // [Drake - Worst Behavior](<https://youtu.be/U5pzmGX8Ztg>) // [Nicki Minaj - Moment 4 Life](<https://youtu.be/Ks3_kuRAzHs>)// [Kenny Rogers - The Gambler](<https://youtu.be/7hx4gdlfamo>) // [Troubles · Alicia Keys](<https://youtu.be/dsadjRYwaxY>) // [Rico Nasty - Animal (Prod By. Mel-O-Dee)](<https://youtu.be/bUZEaXgFYqM?si=vLCMjW3zBOO2Vxcd>) // [Perfect Match · Cella Dwellas @doug-newman-nasa](<https://youtu.be/5WHySdRlcUE?si=9Ds5oZPwNV7XzlU3>) // [Bonobo ft Szjerdene - Get Thy Bearings](<https://youtu.be/4-mWpknZ6Ls>) // [Don't Save Her · Project Pat · Crunchy Black](<https://youtu.be/Yu___7W69eE>) // [Dj Total Eclipse Juggle Fest Rare Mixtape Cassette A](<https://youtu.be/QpHtjIc83Ng>) // [Surah 4](<https://youtu.be/0lMNMwTB5M8>) // [Surah 4](<https://youtu.be/0lMNMwTB5M8>) // [Fat Joe - They Wanna Know ](<https://youtu.be/UZIaR-3H32U?si=Y9ObscCYLMc_Fuuk>) // [Return Of The D.J. Vol. II (Bomb Hip-Hop Compilation 1997)](<https://youtu.be/2Du6WbtZEAE>) // [Glamour Life](<https://www.youtube.com/watch?v=1QnOCkQLTC0>) // [Rico Nasty - Block List](<https://youtu.be/oe_3y_RjnpA>) // [Black Girl Lost · Nas](<https://youtu.be/ZMAoZrJVQKI>) // [Usher - My Way](<https://youtu.be/dthjojjVhDo>) // [The Lady In The Bottle I Dream Of Jeannie s1e1](<https://www.youtube.com/watch?v=F41Y37XTZck>) // [It's All About Me performed by Mya ft. Dru HilL](<https://youtu.be/WzfLg2Bwk4I?si=47mLZMZm6vqd3cId>) // [Dru Hill - In My Bed](<https://youtu.be/_Ixip0K2r10>) // [Al B. Sure! - Nite and Day](<https://youtu.be/Fckqglxb49s>) // [ Immortal Technique - Toast to the Dead 4 Muna](<https://youtu.be/kLBNMhzn8VI>) // [Jean Grae - My Story ](<https://youtu.be/jFz6ECvaiqQ>) // [ I Ain´t Mad At Cha - 2Pac Ft. Danny Boy](<https://youtu.be/oXkKURgzYVY>) // [ Keep Ya Head Up - 2pac](<https://youtu.be/SHVzWMFMH6Y>) // [Gil Scott Heron - Angel Dust ](<https://youtu.be/pRQgviNNZEM>) // [Mary J. Blige - Your Child](<https://youtu.be/bQWOEaQfuEQ>) // [Trap Or Die · Young Jeezy · Bun B](<https://youtu.be/SzHCdn7igPk?list=RDSzHCdn7igPk>) // [David Banner - Like A Pimp ft. Lil' Flip](<https://youtu.be/MKGQ5cIw_ew?si=eXrM2UkvNJOA7o8F>) // [JAŸ-Z - What More Can I Say](<https://youtu.be/ws2lAMea-Is?list=RDSzHCdn7igPk>) // [Southern Vangard Radio Episode 458 WATCH - https://youtu.be/LVTa9L241DY](<https://youtu.be/LVTa9L241DY>) // [Flip The Script - Book Preview](<https://youtu.be/xzssdBMPST0>) // [J Dilla - The Shining (Promo)](<https://youtu.be/2ujXj-uCeiE?list=RD2ujXj-uCeiE>) // [LA Graffiti / FX CREW & STP CREW @ 3:55 - 50 YEARS OF HIPHOP MURAL 3/2023 Monstroe @ 13:02](<https://youtu.be/jd-5KIRUtAw>) // [Atlanta Style Writing - Influential Graffiti Artists Test Their Skills](<https://youtu.be/l9GahWY_-wY>) // [FX CREW Graffiti Writers Crew New York, 1998 VHS documentary](<https://youtu.be/2SojebL03K0>) // [H.E.R. on Being California’s Most Talented Kid, Favorite Filipino Food & New Movie Forgotten Island](<https://youtu.be/WmjIOrhBDIs>) // [Pubic Enemy · A Tribe Called Quest](<https://youtu.be/M2fqWjKlPpo?si=e-_zgldIpi8U0gYy>) // [Area - De LA SouL](<https://youtu.be/PxiVxvbb3QY?si=_EeB0mvPOBO4eWAJ>) // [OJ Da Juiceman - Frank Sinatra](<https://youtu.be/XCz2BhlS1YM?si=2qj3gPEDmfGcpNQ2>) // [Oj Da Juiceman "Cop A Chicken" (Unreleased) (WSHH Exclusive - Official Music Video)](<https://youtu.be/zo_Po1jUhh4>) // [OJ Da Juiceman - Make Tha Trap Say Aye ft. Gucci Mane (Official Video)](<https://youtu.be/JgCoHhsW2Is?si=gBZtsjPg1elgRXDA>) // [Dreezy - Chanel Slides ft. Kash Doll](<https://youtu.be/mpAdintyiV8>) // [Living Proof · Bad Meets Evil](<https://youtu.be/DNCJmLCEL9E>) // [Jaylib - The Red (J Dilla Remix)](<https://youtu.be/j2N2UiJK3Po>) // [Off Air: Beyond The Mic ft. Kash Doll Relationships, Detroit & Keeping It Real](<https://youtu.be/4Rv7BI1xZe0>) /// [I Just Wanna Be Your Girl · Chapter 8](<https://youtu.be/B2rKsLgPHfM>) // [Eminem - Bad Guy](<https://youtu.be/F9bSo8CBD5I?list=PLPS8Md-CVcrERpCtqnLQl0kz5nWtykZ3I>) // [Pusha T - Drug Dealers Anonymous Feat. Jay Z ](<https://youtu.be/COCpn1W13Kw?list=RDCOCpn1W13Kw>) // [Succa Proof - Nipsey Hussle, Victory Lap](<https://youtu.be/rQEuF5QI0Q8?list=RDrQEuF5QI0Q8>) // [JAŸ-Z, Kanye West - Otis ft. Otis Redding](<https://youtu.be/BoEKWtgJQAU?list=RDBoEKWtgJQAU>) // [Lil Wayne - 6 Foot 7 Foot ft. Cory Gunz ](<https://youtu.be/c7tOAGY59uQ?list=RDc7tOAGY59uQ>) // [Lil Wayne - A Milli](<https://youtu.be/1Vf4mMCpNY0?list=RDc7tOAGY59uQ>) // [Young Jeezy - Lose My Mind ft. Plies](<https://youtu.be/Tsmqrk7Wgsk?list=RDTsmqrk7Wgsk>) // [T.I. - About The Money ft. Young Thug](<https://youtu.be/etfIdtm-OC8?list=RDetfIdtm-OC8>) // [Young Jeezy - Leave You Alone (Explicit) ft. Ne-Yo](<https://youtu.be/3B3EgW5zvKU?list=RD3B3EgW5zvKU>) // [Rich Homie Quan - Type of Way @foratlanta](<https://youtu.be/-KKbdErJkiY?list=RD-KKbdErJkiY>) // [WATCH - YoungBoy Never Broke Again - We Poppin (feat. Birdman) ](<https://youtu.be/SKexLz5QRN0?si=eWPRRzwYw9yBgE8u>)*[youtu.be/SKexLz5QRN0?si=eWPRRzwYw9yBgE8u](<https://youtu.be/SKexLz5QRN0?si=eWPRRzwYw9yBgE8u>)* [genius .com/artists/Never-broke-again](<https://genius.com/artists/Never-broke-again>) // [Sho Nuff · Tela · 8-Ball · MJG](<https://youtu.be/wH-vTCtltVk?list=PL32Bk6ELaRyMkViJbDqtaZ-uU7nu21Sd1>) // [Eightball & MJG - Comin' Out Hard ](<https://youtu.be/4szx2f0L2E0>) // [🎧Puff Daddy & The Family: No Way Out🎧](<https://youtu.be/UVff3zuAfTk?si=V71spZjoigOIK_97>) // [📺Super Cat - Dolly My Baby🎧](<https://youtu.be/-u5m_LfiXzM>) // [Jehovah's witnesses - The Organization Behind the Name ](<https://youtu.be/bWoldU88QPs>)
 
 
 
