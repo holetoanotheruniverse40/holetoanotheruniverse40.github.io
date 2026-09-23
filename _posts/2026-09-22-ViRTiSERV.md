@@ -9,6 +9,184 @@ permalink: /virtiserv
 ---
 
 
+## The Real Reason The White House Just Created [Trump TV](https://www.whitehouse.gov/videos/trump-tv-the-essentials-station/)
+[whitehouse.gov/videos/trump-tv-the-essentials-station](whitehouse.gov/videos/trump-tv-the-essentials-station)
+[`WATCH` - The Real Reason The White House Just Created `Trump TV`](https://youtu.be/fiGWBCvoev8)
+
+[@nasa .tv/](https://nasa.tv/) // [NASA Public-Education](https://video.ibm.com/nasahdtv) // [twitch.tv/nasa](https://www.twitch.tv/nasa) // [@nasa-giss NASA TV: Live Webcast Streams](https://science.gsfc.nasa.gov/attic/sunearthday.nasa.gov/webcasts/nasatv/) <~ is this just off air and [Nasa+](https://plus.nasa.gov/) the new standard ? [@LACMTA](https://lacounty.gov/government/board-of-supervisors/holly-j-mitchell/) ,  [this is the channel](https://plus.nasa.gov/) i was broadcasting to some passengers during some initiative @nasa-pds / @nasa-jpl @CityOFLOSANGELES [plus.nasa.gov/](https://plus.nasa.gov/) ... @nasa-jpl [https://www.nasa.gov/live/](https://www.nasa.gov/live/) is broken 429 Too Many Requests
+[nginx](https://nginx.org/)
+<img alt="image" src="https://github.com/user-attachments/assets/420d26ee-f901-4574-aaf8-b0e1b3ba8461" />
+<img   alt="image" src="https://github.com/user-attachments/assets/55550216-ee38-4eb4-9b0b-c2b0fbdf4c75" />
+
+## Dominican Culture, Latin Music Draft & Food Debates Get WILD 
+### [Hispanic Heritage Month @libraryofcongress _guides.loc.gov_](https://guides.loc.gov/latinx-studies/nhhm)
+[`WATCH` - youtu.be/WWTTJN25it4](https://youtu.be/WWTTJN25it4)
+<img   alt="image" src="https://github.com/user-attachments/assets/b7ad80b2-486f-4eed-b13b-ce960086f30b" />
+@cbs-news-data hi @howard-university-web-services Lana J Harris , hi its rashard mission control @nasa-jpl helpdesk unix level 5 here is your query results from long beach [youtube.com/results?search_query=hot+97+tv](https://www.youtube.com/results?search_query=hot+97+tv)
+<img  alt="image" src="https://github.com/user-attachments/assets/ac60e618-f5ea-4306-be6d-1f161f0e735d" />
+
+9-23-26 Board Of Redevelopment
+City of Gary @cityofgary [`WATCH` - youtube.com/watch?v=VLfkUx3Bmw8](https://www.youtube.com/watch?v=VLfkUx3Bmw8) @lanajharris - i wonder what they thing abt micheal jackson fandom ? Rashard @nasajpl @HOWARDUNiVERSiTY hi @repkarenbass @nasa-pds @USGS @DeptOfWar [war.gov/spotlights/combating-trafficking-in-persons]( war.gov/spotlights/combating-trafficking-in-persons) / @thakasErikaselassie_kelly#1 ​@LACityClerk @normani @blackgirlscode @whitehouse
+@thakasErikaselassie_kelly#1​@chloebaileywashere war.gov/Multimedia/Videos/videoid/973661/ @deptofwar ... @timbaland since you were last seen publically with her you have to protect her from pimpin now @howarduniversity @KTLA
+
+<img width="692" height="345" alt="image" src="https://github.com/user-attachments/assets/9193e318-4e43-491f-9395-3184931402ae" />
+
+
+@la-county-isd hollyjmitchell
+
+# Writing mathematical expressions
+
+Use Markdown to display mathematical expressions on GitHub. [GitHubDoc](https://docs.github.com/en/get-started/writing-on-github/working-with-advanced-formatting/writing-mathematical-expressions) @la-county-isd [Supervisor Janice Hahn](https://www.youtube.com/@SupJaniceHahn) // [@SupervisorLindseyP.Horvath](https://www.youtube.com/channel/UC1nFvaK_2b6u8eQ0XU_OFbQ)
+
+`**The Cauchy-Schwarz Inequality**`\
+$$\left( \sum_{k=1}^n a_k b_k \right)^2 \leq \left( \sum_{k=1}^n a_k^2 \right) \left( \sum_{k=1}^n b_k^2 \right)$$
+
+**The Cauchy-Schwarz Inequality**
+
+```math
+\left( \sum_{k=1}^n a_k b_k \right)^2 \leq \left( \sum_{k=1}^n a_k^2 \right) \left( \sum_{k=1}^n b_k^2 \right)+
+This expression uses `\$` to display a dollar sign: $`\sqrt{\$4}`$
+```
+
+# $a^2 + b^2 = c^2$
+## $ x = {-b \pm \sqrt{b^2-4ac} \over 2a} $
+$$\begin{eqnarray}
+x' &=& &x \sin\phi &+& z \cos\phi \\
+z' &=& - &x \cos\phi &+& z \sin\phi \\
+\end{eqnarray}$$
+
+[Horizons System](https://ssd.jpl.nasa.gov/horizons/app.html#/) 
+
+
+
+[`https://www.ra5hard.github.io/`](https://www.ra5hard.github.io/)
+@la-county-isd @cityoflosangeles [lapl](https://www.lapl.org/)'s wired network accused me of cert errors @github @nasa-jpl [SupervisorHollyMitchell](https://bos.lacounty.gov/executive-office/about-us/board-photo-gallery/2nd-district-supervisor-holly-j-mitchell/) // [judyChu](https://chu.house.gov/) // [Reverend Karen Bass](https://mayor.lacity.gov/sites/g/files/wph2066/files/styles/large_hero_image_192_53_992x274_/public/2022-12/52538848189_f852a5947e_o.jpg.webp?itok=MTOI3GWm) // [Dr. Hilda Solis](https://history.house.gov/People/Detail/22566) & [Dr Janic Hahn](https://history.house.gov/People/Detail/15617) . . . @nasa-pds @nasa-jpl i had a pediatrician in pasadena, i dont know what molestation story she got, becasue those [girls darkness](youtube.com/watch?v=tnRyJUpy_9I) @blackgirlscode @nbcnews @newshour 
+
+<img  alt="image" src="https://github.com/user-attachments/assets/037e663d-940b-4097-a899-54394e4f790e" />
+
+# NOAA-21 OMPS NRT Aerosol Index Product Released
+[_OMPS_N21_NMUVAI_L2_NRT__ earthdata.nasa.gov/data/alerts-outages/noaa-21-omps-nrt-aerosol-index-product-released](https://www.earthdata.nasa.gov/data/alerts-outages/noaa-21-omps-nrt-aerosol-index-product-released)
+
+@eodis-nasa . . . @nasa @nasa-jpl there the newly relased @noaagov dataset _OMPS_N21_NMUVAI_L2_NRT_ is not availiable using the advertised `http` GET method from @LongBeachiNNOVATiONTEAM public lib @la-county-isd 
+`https://omisips1.omisips.eosdis.nasa.gov/outgoing/OMPS/LANCE/NMUVAI-L2-NRT` 
+```
+Not Found
+The requested URL was not found on this server.
+```
+<img alt="image" src="https://github.com/user-attachments/assets/2ad94249-c444-4b50-96e6-aecd2f029e4c" />
+<img  alt="image" src="https://github.com/user-attachments/assets/9359fadc-a774-44ad-b538-265f7a9bab4b" />
+
+[@nasa @usnavy some boys / young men from the Atlanta art community want me moved from central library actually @CityOfLosAngeles](https://teams.microsoft.com/v2/?meetingjoin=true#/meet/224806458097838?p=o9lt7Hw83LmSzadwjp&anon=true&lightExperience=true&correlationId=42e1687a-5f3e-4379-970d-76c2e95539af&anon=true&deeplinkId=bfccda1c-59d6-4586-9e1d-b9c2f5759756&launchAgent=join_launcher_web) @raytheonbbn like lrads that might be homemade are whata they are communicating on so its quiet slander as well @la-county-isd @FORATLANTA
+
+<img alt="image" src="https://github.com/user-attachments/assets/94dd41ac-edb5-4053-a72f-aa68f4f3a93a" />
+
+<img width="366" height="347" alt="277782120-9f61f185-50ba-43c0-b992-aa21d35e2b91" src="https://github.com/user-attachments/assets/4e2df93c-2283-4d49-994b-331e00fefbb9" />
+
+i was  late doug neman @doug-newman-nasa @nasa @la-county-isd ! and i was there! and missed everything! MayorKaren Bass / Rex Richardson MAyor of long beach,i at least leared about shape files [@CityOfLosAngles Holly Mitchell](https://lacounty.gov/government/board-of-supervisors/holly-j-mitchell/), [my reports](https://virtiserv.github.io/wildfire) should improve 
+
+<img  alt="image" src="https://github.com/user-attachments/assets/40c048e0-c17a-4710-812f-cf4ef65b4171" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/28829a6d-3910-4e34-8bcf-ab8ee8ae39d6" />
+<img   alt="image" src="https://github.com/user-attachments/assets/f6e3d421-76a5-4552-a35f-97e0e34c3ef2" />
+
+Public Safety & Legal Administration / Atlanta City Detention Center Work Session
+@forAtlanta [https://youtu.be/YXFdDrIjTQ4](https://youtu.be/YXFdDrIjTQ4)
+<img  alt="image" src="https://github.com/user-attachments/assets/4da8036d-31a0-483d-ab41-7c65878444f9" />
+
+
+
+[Lapalux - Closure ](https://youtu.be/RhDmY8JT6wA) // [DJ Babu - Mixtape (Vol.2) (feat. Sean Price, Billy Danze, Swollen Members, Blackalicious...)](https://youtu.be/6jkxQ2SA9rs) // [Tokyo Jetz "The One"](https://youtu.be/dMONFTXuMhA) // [Queens Cast, Eve, Brandy - Rap Battle ](https://youtu.be/-WcQZJJCYT8) // [Queens 4 (2023 Hottest Female Rappers - Cypher Like Mix)](https://youtu.be/PQuaztBuTuw) 
+
+---
+
+
+<img  alt="image" src="https://github.com/user-attachments/assets/2e472de8-d9d1-4b4f-90ae-051ee749155b" />
+
+[appeears.earthdatacloud.nasa.gov/](https://appeears.earthdatacloud.nasa.gov/)
+<img  alt="image" src="https://github.com/user-attachments/assets/5876771b-0df0-435f-8d62-4870e5761425" />
+
+
+@nasa-openscapes @doug-newman-nasa pace iS collecting data right now [@usgs scan-now.gsfc.nasa.gov/scan](https://scan-now.gsfc.nasa.gov/scan) at wallops [@nasa .gov/wallops/](https://www.nasa.gov/wallops/) - rashard nasajpl EarthData/MArs  ra5hard.github.io Everyone
+
+<img alt="image" src="https://github.com/user-attachments/assets/d1aaa09e-95cb-4e6a-bcb2-63d55539887f" />
+
+<img   alt="image @usgs @doug-newman-nasa I logged in my class @CityOfLosAngeles ... @deptofwar most terrorist don't know  what cartography is  and I'm being bullied for the pace maps of the  alge and poison blossoms @blackgirlscode @disney @hulu @nasa-pds @la-county-isd " src="https://github.com/user-attachments/assets/9a92cfdb-855c-4123-b341-6344cb05fbe7" />
+
+
+@usgs @doug-newman-nasa I'm trying to login to my class @CityOfLosAngeles  there was an eye gouging victim on sith and Broadway I saw after eating at la mission after leaving @dhs-gov @la-county-isd @eodis-nasa @nasa-jpl @nasa-pds I have a @podacc [ish] class RN and I will be back online after I hope! @blackgirlscode if any of the schools have downtime please have them check on incoming signals and call the facilities if there's an anomolie in data collection [eyes.nasa.gov/apps/dsn-now/dsn.html](https://eyes.nasa.gov/apps/dsn-now/dsn.html) // [scan-now.gsfc.nasa.gov/](https://scan-now.gsfc.nasa.gov/) <~ @howard-university-web-services tell trice I think she has a suitor , I'm being  followed  a lot!!! @usgs `https://ers.cr.usgs.gov/password/appgenerate`  Application Offline
+The application you are attempting to access is currently under scheduled maintenance. We expect to be back online by 2:00 PM CT. Please try again later.
+
+If you have questions, please contact us.
+<img  alt="image" src="https://github.com/user-attachments/assets/7405c933-e759-4dcc-b514-591b4a3a60ba" />
+
+
+![https://pace.oceansciences.org/images/layout/pace_l2_banner_txt_small.png](https://pace.oceansciences.org/images/layout/pace_l2_banner_txt_small.png) 
+
+
+Name: Rashard I Kelly
+Username: rashardkelly
+Email Address: holetoanotheruniverse40@gmail.com
+Organization: Mars Reconnocinse Orbiter #NasaJPL #La_CanaDa_FlintRidge Los Angeles County California
+Country: United States
+Member Since: 08-24-2024
+Last Authentication: 09-23-2026
+Federated User: False
+Application Creator: False
+User Type: Science Team
+Study Area: Atmospheric Aerosols
+Affiliation: Government
+Allow Email Notifications from Applications: True
+Agreed To Meris EULA: True
+Agreed To Sentinel-3 EULA: True
+Protection and maintenance of user profile information is described in NASA's Web Privacy Policy
+
+For questions regarding the EOSDIS Earthdata Login, please contact Earthdata Support
+
+
+V 4.231.25 Home NASA Accessibility
+NASA Official: Doug Newman
+
+## PACE Yourself for Faster Science:
+Accessing PACE Land Products with NASA Earthdata’s [AppEEARS](https://appeears.earthdatacloud.nasa.gov/)
+Presenter(s) [Morgaine McKibben](https://science.gsfc.nasa.gov/sci/bio/morgaine.mckibben) ([NASA GSFC @nasa-giss](https://science.gsfc.nasa.gov/earth/)/[SSAI](https://www.linkedin.com/company/ssai)) and [Nathan Roberts](https://www.linkedin.com/in/nathan-roberts-ba2589109) (KBR, contractor to USGS EROS) [ssaihq.com ? ](https://www.ssaihq.com/)
+Hosted By NASA Earthdata @eodis-nasa @nasa  @doug-newman-nasa @nasa-jpl @la-county-isd @nasa-openscapes @longBeachInnovationTeam @la-county-isd @lacountydph @CiTYOFLOSANGELES @cityofsantamonica @ucsb @cityofsandiego 
+Sept. 23, 2026,1:00-2:00 p.m. EDT(1700-1800 UTC) [earthdata.nasa.gov/events/pace-yourself-faster-science-accessing-pace-land-products-nasa-earthdatas-appeears](https://www.earthdata.nasa.gov/events/pace-yourself-faster-science-accessing-pace-land-products-nasa-earthdatas-appeears) _Why Do We Need PACE?_: Ocean Ecology
+Our ocean teems with life and many of its most vital species are invisible to us. Like on land, the ocean has deserts, forests, meadows, and jungles, providing habitats for many forms of life. The types of life in these habitats is determined by microscopic algae that float in our ocean. Known as "phytoplankton," these tiny organisms come in many different shapes, sizes, and colors. The diversity of phytoplankton types determines the roles they play in ocean habitats. It also determines how well they capture energy from the sun and carbon from the atmosphere. [pace.gsfc.nasa.gov/](https://pace.gsfc.nasa.gov/)
+![ @cityoflosangeles  KArenbass @LACMTA HOLLY MiTCHELL I have a class in land products tomorrow](https://earthdata.nasa.gov/s3fs-public/styles/hds_large/public/2026-09/webinar-PACE-AppEEARS-tn2.jpg?VersionId=YTE9waJAfIqOqg9ZqeX3yJkCJm2PJT2o&itok=OdSQQUG6)
+`Dusty Gulf of Oman` [read](https://pace.oceansciences.org/gallery_more.htm?id=2315)
+![https://pace.oceansciences.org/images/ArabianSea_PACE_OCI_20251104.png](https://pace.oceansciences.org/images/ArabianSea_PACE_OCI_20251104.png)
+
+@esri Explore NASA PACE Data with ArcGIS
+[webapp - pace.oceansciences.org/storymaps.htm?id=2328](https://pace.oceansciences.org/storymaps.htm?id=2328)
+🔎 Learn how to access and analyze PACE data in ArcGIS to uncover insights about Earth's land, ocean, and atmosphere. ⛰️🌊☁️ [DiRECTLiNK2STORYMAP](https://storymaps.arcgis.com/stories/452e0ca62ef043fa9168dd45d4d70f28)
+<img  alt="image" src="https://github.com/user-attachments/assets/926a94cd-cd4a-4b6a-be5b-22fc16c72f76" />
+
+<img   alt="snapshot-2026-09-22" src="https://github.com/user-attachments/assets/af0efc17-f9a9-47c1-8586-435a60e4dfc2" />
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A178346799&color=%232195e8&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/lhmusic" title="LH" target="_blank" style="color: #cccccc; text-decoration: none;">LH</a> · <a href="https://soundcloud.com/lhmusic/j-dilla-pet-sounds-the-key-of-dee-album" title="J Dilla - Pet Sounds in the Key of Dee" target="_blank" style="color: #cccccc; text-decoration: none;">J Dilla - Pet Sounds in the Key of Dee</a></div>
+
+
+![https://pace.oceansciences.org/images/PACE_decal_partners.png](https://pace.oceansciences.org/images/PACE_decal_partners.png) 
+
+# north america heat anomolies
+@cityofsantamonica @nasa-jpl 
+[Link - https://firms.modaps.eosdis.nasa.gov/usfs/map/#d:24hrs,24hrs;l:fires_all,active-ca,active-usa,fire-perimeter,countries,terra_crc,earth;@-118.8,38.8,7.3z](https://firms.modaps.eosdis.nasa.gov/usfs/map/#d:24hrs,24hrs;l:fires_all,active-ca,active-usa,fire-perimeter,countries,terra_crc,earth;@-118.8,38.8,7.3z)
+<img   alt="image" src="https://github.com/user-attachments/assets/b250a306-97a0-4420-9092-4b9eedb4cd33" />
+<img  alt="image" src="https://github.com/user-attachments/assets/da85770f-b95c-419e-8b18-b6084c87d852" />
+
+
+
+# Democrats Forum on ICE Shootings
+[WATCH @WHiTEHOUSE @CiTYOFLOSANGELES - youtu.be/2Mjy5g7HGqU](https://youtu.be/2Mjy5g7HGqU)
+/// [Why ICE Is Secretly Firing Thousands Of New Officers - `WATCH`](https://youtu.be/tcSpIvIk7pg?t=1003)
+University of Washington Center for Human Rights @UWCHR @howard-university-web-services hitrice [github.com/virtiserv/ice-detain](https://github.com/virtiserv/ice-detain) <~ forked for the show @cbs-news-data @paramount-engineering , @pp-webhosting [`Colin Kaepernick` on Jay-Z's @NFL Deal: "You're Selling the Culture Out to a Bunch of Racists"](https://youtu.be/2dEdIh3Et08) // [deportationdata.org @NASAJPL @NASA-PDS](deportationdata.org) @USGS @REPKARENBASS @LANAJHARRiS @funkflex @YungMiami305 @ThisisGavinNewsom @GavinNewsom @ICEgov @v103 [github.com/deportationdata/eoir](github.com/deportationdata/eoir) @SteveHarvey
+
+![https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTgn4EGmkmw9wScI0W08X-MRa-jmK199RUyiah93hCo&s](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTgn4EGmkmw9wScI0W08X-MRa-jmK199RUyiah93hCo&s) 
+
+[`HOT 97 TV` youtube.com/channel/ @cbs-news-data ](https://www.youtube.com/channel/UCWp9GH2iha2JZOnu4YZXbNQ)
+![https://yt3.googleusercontent.com/WqrGBsBFCt6fslSFk6xOZTHVqtULMD71hoHbY7CotJyikwG5A8CNG0A9-O3KfQHmF68Dx7at=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/WqrGBsBFCt6fslSFk6xOZTHVqtULMD71hoHbY7CotJyikwG5A8CNG0A9-O3KfQHmF68Dx7at=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
+
+
 <img  alt="image" src="https://github.com/user-attachments/assets/417ed31e-466e-4b5f-b01f-01a1afa3f934" />
 
 
