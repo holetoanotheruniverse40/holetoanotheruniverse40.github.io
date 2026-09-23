@@ -16,6 +16,41 @@ permalink: /virtiserv
 [@nasa .tv/](https://nasa.tv/) // [NASA Public-Education](https://video.ibm.com/nasahdtv) // [twitch.tv/nasa](https://www.twitch.tv/nasa) // [@nasa-giss NASA TV: Live Webcast Streams](https://science.gsfc.nasa.gov/attic/sunearthday.nasa.gov/webcasts/nasatv/) <~ is this just off air and [Nasa+](https://plus.nasa.gov/) the new standard ? [@LACMTA](https://lacounty.gov/government/board-of-supervisors/holly-j-mitchell/) ,  [this is the channel](https://plus.nasa.gov/) i was broadcasting to some passengers during some initiative @nasa-pds / @nasa-jpl @CityOFLOSANGELES [plus.nasa.gov/](https://plus.nasa.gov/) ... @nasa-jpl [https://www.nasa.gov/live/](https://www.nasa.gov/live/) is broken 429 Too Many Requests
 [nginx](https://nginx.org/)
 <img alt="image" src="https://github.com/user-attachments/assets/420d26ee-f901-4574-aaf8-b0e1b3ba8461" />
+
+
+<img alt="image" src="https://github.com/user-attachments/assets/4ac8a87f-4e4c-4c26-a168-f6a021d961aa" />
+
+<img  alt="image @blackgirlscode " src="https://github.com/user-attachments/assets/7e8f5285-5edb-432a-8c0d-bd8da9f8f945" />
+
+
+<img  alt="image" src="https://github.com/user-attachments/assets/09d55b1e-5c7a-47ea-963e-c506fcb6eb36" />
+
+<img    alt="image" src="https://github.com/user-attachments/assets/54ba4768-1c60-4eda-94d3-3bb796dcd795" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/a5424fbf-b981-4a78-9819-8c5d78402dfc" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/40320ffc-521f-427c-ae06-fc5fab7ab4d3" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/73252199-ff61-4c3e-9a4e-efc21f4bad1b" />
+
+<img alt="image" src="https://github.com/user-attachments/assets/a9325e1f-b298-4688-8227-69d6eff075d4" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/6eb1ab4d-b469-435e-8f9e-ed17ac2c44a3" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/ff607eb4-2f94-46a6-98cc-68166fa0c453" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/ea91e936-9b21-4e92-84f2-a825dccf9ff0" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/6efe872c-d8d4-451c-9051-7666fc087b9f" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/f2830884-c031-4780-bbb2-cbc59afd4e9f" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/22f9bef7-677a-4ce1-b440-a07feb042187" />
+
+
+@blackgirlscode @nasa-jpl 
+
+
 <img   alt="image" src="https://github.com/user-attachments/assets/55550216-ee38-4eb4-9b0b-c2b0fbdf4c75" />
 
 ## Dominican Culture, Latin Music Draft & Food Debates Get WILD 
