@@ -21,6 +21,19 @@ MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt - gi
   
 </picture>
 
+# NOAA-21 OMPS NRT Aerosol Index Product Released
+[_OMPS_N21_NMUVAI_L2_NRT__ earthdata.nasa.gov/data/alerts-outages/noaa-21-omps-nrt-aerosol-index-product-released](https://www.earthdata.nasa.gov/data/alerts-outages/noaa-21-omps-nrt-aerosol-index-product-released)
+
+@eodis-nasa . . . @nasa @nasa-jpl there the newly relased @noaagov dataset _OMPS_N21_NMUVAI_L2_NRT_ is not availiable using the advertised `http` GET method from @LongBeachiNNOVATiONTEAM public lib @la-county-isd 
+`https://omisips1.omisips.eosdis.nasa.gov/outgoing/OMPS/LANCE/NMUVAI-L2-NRT` 
+```
+Not Found
+The requested URL was not found on this server.
+```
+<img alt="image" src="https://github.com/user-attachments/assets/2ad94249-c444-4b50-96e6-aecd2f029e4c" />
+<img  alt="image" src="https://github.com/user-attachments/assets/9359fadc-a774-44ad-b538-265f7a9bab4b" />
+
+[@nasa @usnavy some boys / young men from the Atlanta art community want me moved from central library actually @CityOfLosAngeles](https://teams.microsoft.com/v2/?meetingjoin=true#/meet/224806458097838?p=o9lt7Hw83LmSzadwjp&anon=true&lightExperience=true&correlationId=42e1687a-5f3e-4379-970d-76c2e95539af&anon=true&deeplinkId=bfccda1c-59d6-4586-9e1d-b9c2f5759756&launchAgent=join_launcher_web) @raytheonbbn like lrads that might be homemade are whata they are communicating on so its quiet slander as well @la-county-isd @FORATLANTA
 
 <img  alt="image" src="https://github.com/user-attachments/assets/e20c03b8-1552-44a9-9599-67e77839d977" />
 ENCYCLOPEDIC ENTRY
