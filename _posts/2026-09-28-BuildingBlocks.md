@@ -7,6 +7,75 @@ title: "@nasa-jpl TroubleTicketsNiSSUes"
 image: Sun_Microsystems_SunFire_X4150_Cluster.jpeg
 ---
 
+<img   alt="image @nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard " src="https://github.com/user-attachments/assets/1d1a415c-8f08-42b2-8006-acee519d6fa7" />
+
+@nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard
+
+<img  alt="image https://accounts.google.com/uplevelingstep/selection?TL=ADG-GRSIBOYHhQ5otDdZRV-f8yjl7moAUWln-T0lNXUFw7j301VEutjYsms2PUCE&authuser=0&continue=https%3A%2F%2Fstudio.youtube.com%2Fverification_callback&flowName=GlifWebSignIn&sarp=1&scc=1 @nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard" src="https://github.com/user-attachments/assets/70ce8ad5-6268-4baf-a32a-6513bfba346e" />
+
+
+
+[Gangstarr - Moment_0f_Truth FULL ALBUM](https://youtu.be/b1EbbT7Xrgs?si=bM1BGbtQnU9YUgSc)  
+
+[Heath cliff and the Cadillac cats episodes + Heathcliff (animated flick)](https://archive.org/details/HeathcliffanimatedFlick)
+
+
+# Mornings With Mero : [`Issa Rae`](https://www.youtube.com/@HOORAEMedia) Calls Out 
+_Hollywood,Mamdani's Influencer Heat and Kirk Franklin Sa..._ [`WATCH` - youtu.be/r1h4VjrvDdg?si=cbFNdVfm2-LPoB1e](https://youtu.be/r1h4VjrvDdg?si=cbFNdVfm2-LPoB1e)
+
+<img alt="image" src="https://github.com/user-attachments/assets/e3d28461-aacb-444f-922d-e3e9c6d5be65" />
+
+[Team Falken Drifting @nasa-pds](https://youtu.be/aZ5ieXGs-IE?list=RDaZ5ieXGs-IE) // [Falken Drift Team-Wolsfeld Hill Climb 2019](https://youtu.be/itFNnRslvG4)  // [Vaughn Gittin Jr. - Drift King ` Mero don't be jealous jes chill` of The Ring @blackgirlscode ](https://youtu.be/KXGLSF3MuZw?t=87)
+
+![https://yt3.googleusercontent.com/GXi8DpjVOgyu3myGKXb-fqE_8HGUV3MvztJFU6VAOTGLGsWdsR_RLvHhT62qpX6xvqTM_fcku9w=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/GXi8DpjVOgyu3myGKXb-fqE_8HGUV3MvztJFU6VAOTGLGsWdsR_RLvHhT62qpX6xvqTM_fcku9w=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
+
+
+
+## How Did [Nolan Wells](https://yandex.com/search/?text=nolan+wells&lr=20765&search_source=yacom_desktop_common) "Drown" With No Water In His Lungs?
+[`WATCH` - youtu.be/dkLmJRI82T0?si=MoXsz3aVic4S1FGp](https://youtu.be/dkLmJRI82T0?si=MoXsz3aVic4S1FGp)
+
+<img alt="image  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard" src="https://github.com/user-attachments/assets/e95e97c8-158c-492c-ae98-d37563d5a4df" />
+
+
+[Is He LYING? Body Language Analyst Reacts to Nolan Wells' Friend's Story! (Warren Hudson) @nasa](https://youtu.be/TmlpJkyaOFQ?si=FKRaKTTjW2iPnUF_)
+
+[ @usgs @nasa @NiHGOV rashard-ecostress-jpl-iss.github.io/ricothaka/](https://rashard-ecostress-jpl-iss.github.io/ricothaka/)
+
+
+# Super Chase - Criminal Termination 1993
+## スーパー・チェイス・クリミナル・ターミネション
+[wiki](https://en.wikipedia.org/wiki/Super_Chase_H.Q.) : [Museum](https://www.arcade-museum.com/Videogame/super-chase-criminal-termination)  : [LaunchBoX](https://gamesdb.launchbox-app.com/games/details/39251-super-chase-criminal-termination)
+: [AbandonWare](https://www.myabandonware.com/game/super-chase-criminal-termination-aue)
+<img width="320" height="78" alt="strategywiki.org/wiki/File:Super_Chase_marquee" src="https://github.com/user-attachments/assets/cfb677ff-4c75-406f-acc5-6d42ef5eafff" />
+
+<iframe src="https://archive.org/embed/arcade_superchs" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+
+X-Men [1992] - Arcade
+Publication date 1992 Topics X-men,Arcade,@Konami
+[archive.org/details/xmen_20250615_202506](https://archive.org/details/xmen_20250615_202506) /// [Street Fighter Alpha - warriors' dreams (950627 USA)](https://www.retrogames.cc/arcade-games/street-fighter-alpha-warriors-dreams-950627-usa.html) // [Night Warriors - darkstalkers' revenge (950406 USA)](https://www.retrogames.cc/arcade-games/night-warriors-darkstalkers-revenge-950406-usa.html)
+<iframe src="https://archive.org/embed/xmen_20250615_202506" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+
+[Gangstarr - Moment_0f_Truth FULL ALBUM](https://youtu.be/b1EbbT7Xrgs?si=bM1BGbtQnU9YUgSc) [Shaakira_Gathers_iLoveu](https://rashardiman.github.io/)
+
+[Heath cliff and the Cadillac cats episodes + Heathcliff (animated flick)](https://archive.org/details/HeathcliffanimatedFlick)
+
+[nasa.gov/wp-content/uploads/2025/09/nasa-continuity-of-appropriations-plan-final-9-29-2025.pdf?emrc=cd4554](https://www.nasa.gov/wp-content/uploads/2025/09/nasa-continuity-of-appropriations-plan-final-9-29-2025.pdf?emrc=cd4554)
+
+# NASA Appropriations and Authorizations:
+At [a](https://www.earthdata.nasa.gov/data/projects/lance/people) Glance [READ - CLiCKHERE](https://www.congress.gov/crs-product/R43419)
+[@NASA :pdf: @nasa-jpl](https://www.congress.gov/crs_external_products/R/PDF/R43419/R43419.121.pdf)
+@cityoflosangeles [@rashardsdata changelog](https://rashardnasalosangelesjpl.github.io/rashardlearned/changelog) + [@rashardgds BuildingBlocks](https://github.com/ThakaRashard/rashardmro/blob/master/_posts/2025-09-15-BuildingBlocks.md) `<- sites with outages @whitehouse @dhs-gov [Discover and Access the OPERA-DISP Dataset Using ASF DAAC’s Displacement Portal @nasa-jpl](https://www.youtube.com/watch?v=BLzEvT-mdkU)
+
+<iframe src="https://archive.org/embed/Spider-Man-67-Collection" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+<iframe src="https://archive.org/embed/street-fighter-1994-vhs-rip" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+
+![@whitehouse @nasa-pds @caltech @ASU @blackgirlscode ](https://hirise-pds.lpl.arizona.edu/PDS/EXTRAS/ANAGLYPH/ESP/ORB_093000_093099/ESP_093049_1520_ESP_093550_1520/ESP_093049_1520_ESP_093550_1520_RED.browse.png)
+
+<img   alt=" @nasa-jpl @emit-sdf @asfadmin @la-county-isd 528899468-0594adca-ec4c-4aca-84ff-8876a79c4766" src="https://github.com/user-attachments/assets/7cd25089-d18c-4155-8cc6-f1e041c29d55" />
 
 ## Rashard Kelly ...
 MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/) . . . @ucla hi from [Remote @Nasa-JPL](https://holetoanotheruniverse40.github.io/compiling/) // [virtiserv](https://www.facebook.com/thevirtiservway/)  // @esa @usgs @alphagov ~ @whitehouse @la-county-isd @UKSpaceAgency hi @eSA @blackgirlscode @eu-cdse
