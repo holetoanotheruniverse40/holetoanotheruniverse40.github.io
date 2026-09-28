@@ -12,6 +12,66 @@ image: luckyGirl.png
 [1879 California Constitution](https://archives.cdn.sos.ca.gov/collections/1879/archive/1879-constitution.pdf) [Equal Rights Amendments: State Provisions](https://web.archive.org/web/20140517123130/https://digital.library.unt.edu/ark:/67531/metacrs7397/m1/1/high_res_d/RS20217_2004Aug23.pdf)  [1849 California Constitution (spanish)](https://archives.cdn.sos.ca.gov/collections/1849/images/1849Constitucion2.pdf)
 [senate.ca.gov/sites/senate.ca.gov/files/california_constitution_2019-20_0.pdf](https://www.senate.ca.gov/sites/senate.ca.gov/files/california_constitution_2019-20_0.pdf) // [codepen.io/thakarashard/pen/YzMEOGN](https://codepen.io/thakarashard/pen/YzMEOGN)
 
+
+
+<img  alt="image@doug-newman-nasa @Eodis-nasa hi I got locked out of my account after I figured out that Latrice of @howard-university-web-services is [Lana j Harris](https://voyageatl.com/interview/meet-lana-harris-of-atlanta/) 
+and she did my space force paperwork and some jealous suitor shutdown my @youtube,@nasa-jpl `https://studio.youtube.com/channel-appeal?authuser=0` . . . @CityOfLosAngeles I am in central and that is where I last logged in can someone talk to my management team about reneabling my account, it was disabled from here [@la-county-isd holly j miutchell @lacmta](https://boardagendas.metro.net/person/holly-j-mitchell-39c7ff59ec43/) @nasa-pds I cannot continue my earthdata homework @nasa-openscapes without this account, I'll have to start a lot from scratch including my atlanta story @foratlanta @Caltech @asu @webb @nfl" src="https://github.com/user-attachments/assets/1aa3e413-c703-4b37-af20-e36f433d404e" />
+
+@doug-newman-nasa @Eodis-nasa hi I got locked out of my account after I figured out that Latrice of @howard-university-web-services is [Lana j Harris](https://voyageatl.com/interview/meet-lana-harris-of-atlanta/) 
+and she did my space force paperwork and some jealous suitor shutdown my @youtube,@nasa-jpl `https://studio.youtube.com/channel-appeal?authuser=0` . . . @CityOfLosAngeles I am in central and that is where I last logged in can someone talk to my management team about reneabling my account, it was disabled from here [@la-county-isd holly j miutchell @lacmta](https://boardagendas.metro.net/person/holly-j-mitchell-39c7ff59ec43/) @nasa-pds I cannot continue my earthdata homework @nasa-openscapes without this account, I'll have to start a lot from scratch including my atlanta story @foratlanta @Caltech @asu @webb @nfl 
+
+![https://voyageatl.com/wp-content/uploads/2025/05/c-1744878544857-personal_1744878544431_1744878544431_lana_harris_img_5476.jpg @doug-newman-nasa @Eodis-nasa hi I got locked out of my account after I figured out that Latrice of @howard-university-web-services is [Lana j Harris](https://voyageatl.com/interview/meet-lana-harris-of-atlanta/) 
+and she did my space force paperwork and some jealous suitor shutdown my @youtube,@nasa-jpl `https://studio.youtube.com/channel-appeal?authuser=0` . . . @CityOfLosAngeles I am in central and that is where I last logged in can someone talk to my management team about reneabling my account, it was disabled from here @la-county-isd holly j miutchell @lacmtahttps://boardagendas.metro.net/person/holly-j-mitchell-39c7ff59ec43/](https://voyageatl.com/wp-content/uploads/2025/05/c-1744878544857-personal_1744878544431_1744878544431_lana_harris_img_5476.jpg) 
+<img   alt="image @nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard " src="https://github.com/user-attachments/assets/1d1a415c-8f08-42b2-8006-acee519d6fa7" />
+
+@nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard
+
+<img  alt="image https://accounts.google.com/uplevelingstep/selection?TL=ADG-GRSIBOYHhQ5otDdZRV-f8yjl7moAUWln-T0lNXUFw7j301VEutjYsms2PUCE&authuser=0&continue=https%3A%2F%2Fstudio.youtube.com%2Fverification_callback&flowName=GlifWebSignIn&sarp=1&scc=1 @nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard" src="https://github.com/user-attachments/assets/70ce8ad5-6268-4baf-a32a-6513bfba346e" />
+
+
+
+[Gangstarr - Moment_0f_Truth FULL ALBUM](https://youtu.be/b1EbbT7Xrgs?si=bM1BGbtQnU9YUgSc)  
+
+[Heath cliff and the Cadillac cats episodes + Heathcliff (animated flick)](https://archive.org/details/HeathcliffanimatedFlick)
+
+
+# Mornings With Mero : [`Issa Rae`](https://www.youtube.com/@HOORAEMedia) Calls Out 
+_Hollywood,Mamdani's Influencer Heat and Kirk Franklin Sa..._ [`WATCH` - youtu.be/r1h4VjrvDdg?si=cbFNdVfm2-LPoB1e](https://youtu.be/r1h4VjrvDdg?si=cbFNdVfm2-LPoB1e)
+
+<img alt="image" src="https://github.com/user-attachments/assets/e3d28461-aacb-444f-922d-e3e9c6d5be65" />
+
+[Team Falken Drifting @nasa-pds](https://youtu.be/aZ5ieXGs-IE?list=RDaZ5ieXGs-IE) // [Falken Drift Team-Wolsfeld Hill Climb 2019](https://youtu.be/itFNnRslvG4)  // [Vaughn Gittin Jr. - Drift King ` Mero don't be jealous jes chill` of The Ring @blackgirlscode ](https://youtu.be/KXGLSF3MuZw?t=87)
+
+![https://yt3.googleusercontent.com/GXi8DpjVOgyu3myGKXb-fqE_8HGUV3MvztJFU6VAOTGLGsWdsR_RLvHhT62qpX6xvqTM_fcku9w=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/GXi8DpjVOgyu3myGKXb-fqE_8HGUV3MvztJFU6VAOTGLGsWdsR_RLvHhT62qpX6xvqTM_fcku9w=w1138-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
+
+
+
+## How Did [Nolan Wells](https://yandex.com/search/?text=nolan+wells&lr=20765&search_source=yacom_desktop_common) "Drown" With No Water In His Lungs?
+[`WATCH` - youtu.be/dkLmJRI82T0?si=MoXsz3aVic4S1FGp](https://youtu.be/dkLmJRI82T0?si=MoXsz3aVic4S1FGp)
+
+<img alt="image  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard" src="https://github.com/user-attachments/assets/e95e97c8-158c-492c-ae98-d37563d5a4df" />
+
+
+[Is He LYING? Body Language Analyst Reacts to Nolan Wells' Friend's Story! (Warren Hudson) @nasa](https://youtu.be/TmlpJkyaOFQ?si=FKRaKTTjW2iPnUF_)
+
+[ @usgs @nasa @NiHGOV rashard-ecostress-jpl-iss.github.io/ricothaka/](https://rashard-ecostress-jpl-iss.github.io/ricothaka/)
+
+
+# Super Chase - Criminal Termination 1993
+## スーパー・チェイス・クリミナル・ターミネション
+[wiki](https://en.wikipedia.org/wiki/Super_Chase_H.Q.) : [Museum](https://www.arcade-museum.com/Videogame/super-chase-criminal-termination)  : [LaunchBoX](https://gamesdb.launchbox-app.com/games/details/39251-super-chase-criminal-termination)
+: [AbandonWare](https://www.myabandonware.com/game/super-chase-criminal-termination-aue)
+<img width="320" height="78" alt="strategywiki.org/wiki/File:Super_Chase_marquee" src="https://github.com/user-attachments/assets/cfb677ff-4c75-406f-acc5-6d42ef5eafff" />
+
+<iframe src="https://archive.org/embed/arcade_superchs" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+
+X-Men [1992] - Arcade
+Publication date 1992 Topics X-men,Arcade,@Konami
+[archive.org/details/xmen_20250615_202506](https://archive.org/details/xmen_20250615_202506) /// [Street Fighter Alpha - warriors' dreams (950627 USA)](https://www.retrogames.cc/arcade-games/street-fighter-alpha-warriors-dreams-950627-usa.html) // [Night Warriors - darkstalkers' revenge (950406 USA)](https://www.retrogames.cc/arcade-games/night-warriors-darkstalkers-revenge-950406-usa.html)
+<iframe src="https://archive.org/embed/xmen_20250615_202506" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+
 <img   alt="image" src="https://github.com/user-attachments/assets/8cd3b23d-79d4-4173-9860-45d9b8fff25c" />
 
 ![https://csrc.nist.gov/CSRC/media/images/svg/nist-logo.svg](https://csrc.nist.gov/CSRC/media/images/svg/nist-logo.svg)
