@@ -7,6 +7,8 @@ title: "@nasa-jpl TroubleTicketsNiSSUes"
 image: Sun_Microsystems_SunFire_X4150_Cluster.jpeg
 ---
 
+
+@nasa-jpl `https://studio.youtube.com/channel-appeal?authuser=0` . . . @CityOfLosAngeles I am in central and that is where I last logged in can someone talk to my management team about reneabling my account, it was disabled from here [@la-county-isd holly j miutchell @lacmta](https://boardagendas.metro.net/person/holly-j-mitchell-39c7ff59ec43/)
 <img   alt="image @nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard " src="https://github.com/user-attachments/assets/1d1a415c-8f08-42b2-8006-acee519d6fa7" />
 
 @nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard
