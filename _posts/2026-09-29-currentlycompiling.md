@@ -10,6 +10,125 @@ mathjax: true
 
 [virtiserv.github.io](https://youtu.be/P1K-uC-ZQso?is=8LQ8ZHTm8IU1Dzr2)
 
+
+[GloRilla Live at MadisonSquareGarden](https://archive.org/details/GloRilla2024-05-21?webamp=default)
+
+---
+
+@nasa-jpl here is a method for streaming in html5 [@abcnews](https://www.abc.net.au/) [rashard @eodis-nasa](https://virtiservllc.github.io/rashardmro/)
+
+[`link` - https://abc-iview-mediapackagestreams-2.akamaized.net/out/v1/7c7a6abe4d604faca4d6b91f6567558f/index.m3u8](https://abc-iview-mediapackagestreams-2.akamaized.net/out/v1/7c7a6abe4d604faca4d6b91f6567558f/index.m3u8?hdnea=st=1790714302~exp=1790715202~acl=/*~hmac=31a975efd498f88ce78a84af7403d76fdf4b0df2f444e2bb2af6b0509abda78b)
+
+```html
+ <object
+  type="audio/x-mpegurl"
+  data="https://abc-iview-mediapackagestreams-2.akamaized.net/out/v1/7c7a6abe4d604faca4d6b91f6567558f/index.m3u8?hdnea=st=1790714302~exp=1790715202~acl=/*~hmac=31a975efd498f88ce78a84af7403d76fdf4b0df2f444e2bb2af6b0509abda78b"
+  width="250"
+  height="200"></object>
+  ```
+
+ <object
+  type="audio/x-mpegurl"
+  data="https://abc-iview-mediapackagestreams-2.akamaized.net/out/v1/7c7a6abe4d604faca4d6b91f6567558f/index.m3u8?hdnea=st=1790714302~exp=1790715202~acl=/*~hmac=31a975efd498f88ce78a84af7403d76fdf4b0df2f444e2bb2af6b0509abda78b"
+  width="550"
+  height="400"></object>
+
+
+@nbcnews here is a live feed i found on @iptv for abcnews
+
+https://abc-iview-mediapackagestreams-2.akamaized.net/out/v1/7c7a6abe4d604faca4d6b91f6567558f/index.m3u8?hdnea=st=1790714302~exp=1790715202~acl=/*~hmac=31a975efd498f88ce78a84af7403d76fdf4b0df2f444e2bb2af6b0509abda78b
+
+[Playing m3u8 Files with HTML Video Tag](https://stackoverflow.com/questions/19782389/playing-m3u8-files-with-html-video-tag)
+
+# 📺 @iPTV @ForAtlanta
+[iptv-org.github.io/](https://iptv-org.github.io/)
+I started a ticket for [abc7](https://abc7.com/) in [@CityOfLoSAngeles](https://www.linkedin.com/company/city-of-los-angeles) but fell off because there was a feild missing i needed to complete the [contribution requirements](https://github.com/iptv-org/iptv/blob/master/CONTRIBUTING.md) for the [📺`Add Channel Form`📺](https://github.com/iptv-org/database/issues/new?labels=logos%3Aadd&template=07_logos_add.yml&title=Add%3A+1TV+%28Afghanistan%29+Logo&channel_id=1TV.af)@nasa-jpl hi @whitehouse [TrumpTv📺](https://www.whitehouse.gov/trumptv/) /// [@whitehouse @nasa-giss fukuball/Trump-Driven-Development](https://github.com/fukuball/Trump-Driven-Development) @eodis-nasa
+[https://github.com/iptv-org/iptv](https://github.com/iptv-org/iptv) 
+
+# ATLChannel26 📺
+Description _Welcome to ATL26 – your official channel for all things City of Atlanta government._
+[youtube.com/@ATLChannel26](https://www.youtube.com/@ATLChannel26)
+![https://yt3.googleusercontent.com/caFJi21WJizZ9HXZkLkj3SIL_oWEQZ8URgET2k2TrqfPh-hVo-Pm6R9U1I3dvkPh-6Wm-q93Tw=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/caFJi21WJizZ9HXZkLkj3SIL_oWEQZ8URgET2k2TrqfPh-hVo-Pm6R9U1I3dvkPh-6Wm-q93Tw=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
+
+# atlcouncil - Atlanta City Council 📺
+[@forAtlanta  youtube.com/@atlcouncilAtlantaCityCouncil](https://www.youtube.com/@atlcouncilAtlantaCityCouncil)
+![https://yt3.googleusercontent.com/wB4S-3F41LMRzQnmJ1uQDeHfI3-KFZBSow7hsFxLxegtG3QZu76YevVQKZJenfLvmkuldHvAbQ=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/wB4S-3F41LMRzQnmJ1uQDeHfI3-KFZBSow7hsFxLxegtG3QZu76YevVQKZJenfLvmkuldHvAbQ=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
+
+# Hot97tv  📺
+[`WATCH` - Florida Carjacking Chase, Frat Hazing Arrests & Classroom Fight Club](https://youtu.be/Kc0vnyHXQN4)
+@howard-university-web-services hi @nasa-jpl cafeteria [@blackgirlscode photoshopalternative: painter5](https://archive.org/details/fractaldesignpainter5_pa50cd1)
+
+
+<img alt="image[`WATCH` - Florida Carjacking Chase, Frat Hazing Arrests & Classroom Fight Club](https://youtu.be/Kc0vnyHXQN4)
+@howard-university-web-services hi @nasa-jpl cafeteria " src="https://github.com/user-attachments/assets/c130a7d6-69e3-469d-b44c-b6642db65beb" />
+
+### [Captain America](https://marvel.fandom.com/wiki/Captain_America) 1944
+<iframe src="https://archive.org/embed/CaptainAmerica1944Serial1" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+# Windows 95 エミュレーター (DOSBox)
+[@blackgirlscode hi its a vintage os you may find around usajobs.gov](https://www.usajobs.gov/)
+[`run`](https://archive.org/details/win95_in_dosbox_ja)
+<img  alt="image @jaxa I was in the [Meyer goldwyn branch](https://www.lapl.org/branches/hollywood) and found these pages in the County Municipal ... Of your powers , [MuniCode.Com  library.municode.com/ca/los_angeles_county/codes ](https://library.municode.com/ca/los_angeles_county/codes/code_of_ordinances?nodeId=TIT3ADCOCO_CH3.10CISECO_3.10.020EVCHCISECO) has something like that binder but im having trouble finding the origional files. these site tyhat have [deepweb](https://www.ebsco.com/research-starters/computer-science/deep-web) documents are so scketchy but ppl using them in patrol cars and in the courtroom and im afraid @usgpo hi its rashard from @nasa-jpl can this record be verified for @eodis-nasa we need it for our [future artemis builds @nasa](https://www.jpl.nasa.gov/news/networks-keeping-nasas-artemis-ii-mission-connected/) , @TheSapceDevs if you look on Page 11, you will see request for Deep Space Network Aquisition Services... and thats us here in @la-county-isd pasadena @nasa-pds @nasa-jpl [ is lunar ops DSN ? @nasa-pds - `Artemis3 Docs`  @cal-poly-dxhub plz fwd to victor @nasa-openscapes ](https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf#page=11) @doug-newman-nasa @eodis-nasa See Congressional Record, vol. 172, no. 5, Book II (January 8, 2026), pp. H263-H265, [govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf](https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf) <~ is it legit @whitehouse @deptofwar @commercegov @la-county-isd @CityOfSantaMonica @longbeachinnovationteam . [RelatedTweet](https://x.com/BubbleGumPop510/status/1759007658462548349) @nasa-jpl @nasa @deptofwar @la-county-isd " src="https://github.com/user-attachments/assets/b6687f0f-19bc-4f6b-ae21-75aa4099c75b" />
+
+<iframe src="https://archive.org/embed/win95_in_dosbox_ja" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+### keeping-nasas-artemis-ii-mission-connected 
+@nasa-jpl @usnavy @code.mil
+[<video  preload="auto" width="auto" height="400px" controls src="https://d2pn8kiwq2w21t.cloudfront.net/media/keeping-nasas-artemis-ii-mission-connected-web.mp4" />](https://d2pn8kiwq2w21t.cloudfront.net/media/keeping-nasas-artemis-ii-mission-connected-web.mp4)
+
+### Dear Rep Karen @CityOFLosAnGeles,
+I was in the [Meyer goldwyn branch](https://www.lapl.org/branches/hollywood) and found these pages in the County Municipal ... Of your powers , [MuniCode.Com  library.municode.com/ca/los_angeles_county/codes ](https://library.municode.com/ca/los_angeles_county/codes/code_of_ordinances?nodeId=TIT3ADCOCO_CH3.10CISECO_3.10.020EVCHCISECO) has something like that binder but im having trouble finding the origional files. these site tyhat have [deepweb](https://www.ebsco.com/research-starters/computer-science/deep-web) documents are so scketchy but ppl using them in patrol cars and in the courtroom and im afraid @usgpo hi its rashard from @nasa-jpl can this record be verified for @eodis-nasa we need it for our [future artemis builds @nasa](https://www.jpl.nasa.gov/news/networks-keeping-nasas-artemis-ii-mission-connected/) , @TheSapceDevs if you look on Page 11, you will see request for Deep Space Network Aquisition Services... and thats us here in @la-county-isd pasadena @nasa-pds @nasa-jpl [ is lunar ops DSN ? @nasa-pds - `Artemis3 Docs`  @cal-poly-dxhub plz fwd to victor @nasa-openscapes ](https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf#page=11) @doug-newman-nasa @eodis-nasa See Congressional Record, vol. 172, no. 5, Book II (January 8, 2026), pp. H263-H265, [govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf](https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf) <~ is it legit @whitehouse @deptofwar @commercegov @la-county-isd @CityOfSantaMonica @longbeachinnovationteam . [RelatedTweet](https://x.com/BubbleGumPop510/status/1759007658462548349) @nasa-jpl @nasa @deptofwar @la-county-isd
+
+<object data="https://www.govinfo.gov/content/pkg/CREC-2026-01-08/pdf/CREC-2026-01-08-house-bk3.pdf" type="application/pdf" width="650" height="500">
+<p>You don't have a PDF plugin, but you can <a href="https://www.senate.ca.gov/sites/senate.ca.gov/files/california_constitution_2019-20_0.pdf">download the PDF file. Congressional Record, vol. 172, no. 5, Book II (January 8, 2026), pp. H263-H265</a></p></object>
+
+
+
+
+
+
+```
+Artemis Campaign.—The agreement rejects
+the proposed termination of the Space
+Launch System (SLS) and Orion programs
+following Artemis III. In any future competition for Artemis launch services, the agreement directs NASA to include an SLS-based
+option, unless otherwise directed by Congress. The agreement further prohibits the
+reallocation of funds from the Artemis Moon
+to Mars Transportation account, unless and
+until a commercial alternative is demonstrated to meet or exceed the capabilities
+of the SLS and Orion systems. Not later than
+30 days of the enactment of this act, and
+quarterly thereafter, NASA shall provide the
+Committees a briefing detailing any updates
+on the Human Landing System (HLS) program, the progress made in the HLS program, any anticipated changes to program
+cost or schedule, and any other relevant
+issues related to the HLS program
+```
+
+
+<img  alt="image" src="https://github.com/user-attachments/assets/1c37a142-9260-49f0-8274-956c878becd0" />
+
+![https://www.congress.gov/img/svg/congress-gov-logo.svg](https://www.congress.gov/img/svg/congress-gov-logo.svg) 
+
+
+
+
+![Mayor is Chief Executive -  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard](https://pbs.twimg.com/media/GGk_-sAbEAAzy6b?format=png&name=900x900)
+![Mayoral Duties -  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard](https://pbs.twimg.com/media/GGlAAJXacAAKuq7?format=jpg&name=medium)
+![mayor -  @thakasErikaselassie_kelly ​​@lanajharris abandoned me after a blackface screw ,, this is the girl @ForAtlanta there may be a rape rumor I'm fighting, she was in my bed when I woke up and she did it and returned again under several skin tones!!!! @Blackgirlscode @bbc @nasa-giss @eodis-nasa github.com/virtiserv/virtiserv.github.io/commit/f1a0071405ea29caa16949e6a955bafd1591d288 @HOWARDUNiVERSiTY @WHiTEHOuse that's the girl that said she was muna Ahmed, but there was another one at pricilla house that did the same thing but she looked different and I don't know where my child is @doug-newmna-nasa @cia I swear I have been working in due diligence for my own healing and that of my family @StateOfCAlifornia @CityOfLosAngeles  @ra5hard](https://pbs.twimg.com/media/GGk_9YfbcAAfHg_?format=jpg&name=medium) // [@nasa-jpl check out the COVID tweets I was here man! rashard-ecostress-jpl-iss.github.io/ricothaka/](https://rashard-ecostress-jpl-iss.github.io/ricothaka/)
+
+[<video  preload="auto" width="auto" height="400px" controls src="https://archive.org/download/lander-vision-system-camera-perseverance-landing-mars-2020/LanderVisionSystemCamera_PerseveranceLandingMars2020.mp4" />](https://archive.org/download/lander-vision-system-camera-perseverance-landing-mars-2020/LanderVisionSystemCamera_PerseveranceLandingMars2020.mp4)
+
+<img  alt="image [@LA-County-isd @CitYOFLosANGELES](https://www.tiktok.com/@mjbusinessacademy/video/7567530603516661005) @
+@CityOFSantaMonica if [ya know holly](https://www.hollyjmitchell.com/)!
+@HollyJMitchell@bos.lacounty.gov sorry to bug you, i need to talk about downtown safety, im miserable... i suffred a cyberattack followed by a weed robbery that nights ,,, @lanajharris@gmail.com we had the brush by in front of the police department and i cant picture her distancing herself by disabling my youtube account i use for nasa earthdata and all the support webinars we have to keep up with @douglas.j.newman@nasa.gov , [howard.edu](howard.edu) is accross the street from @The White House  , and virtiserv is like her theisis, and i know my boss @gatech was pretty and got kidnapped so... idk .. [Count PRofits](https://www.bbb.org/us/oh/youngstown/profile/financial-planning-consultants/count-profits-0432-20020936) is a business that came up while she was out of my physical care so i dont know she was into a lot  . @benjamin.porter@cantonga.gov hi you may remember my spouse of alameda countys case [essence.com/news/erika-kelly-missing-atlanta-georgia/](essence.com/news/erika-kelly-missing-atlanta-georgia/) . . . @keishaforgovernor@gmail.com  i have reason to belive that this is erika [essence.com/celebrity/mulatto-is-growing-with-age-feature/](essence.com/celebrity/mulatto-is-growing-with-age-feature/) and im being bullied mercilessly by the sex trade, people brag of pimping fantasies and porno expectations completed regularly while i get castration threats @kathryn@bos.lacounty.gov [@dohmke](https://www.tiktok.com/@mjbusinessacademy/video/7567530603516661005) @office@lafirstumc.org @howard-university-web-services [@fbicyber she said she work here too](https://ilwu63.net/wp-content/uploads/2017/06/6-2-2017-LA-LB-Casual-Processing-List.pdf) " src="https://github.com/user-attachments/assets/06321716-3f59-44a0-8718-bc5aa0078151" />
+
+
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">@NASAJPL @EuropaClipper https://t.co/ISVkHYHn4b do u guys knw #Ms_LiLi_BossE?@Beyonce gone jack her title (#Bossy (-(-_(-_-)_-)-) #Everyoneknows) anyway these r some good #LosAngelesLocalPoliticsContacts @NASASpaceflight 
+@LiliBosse1 @HildaSolis @SenBillNelson @RepKarenBass @skyepatrickLIB1 #defineMayor https://t.co/IKcOta7Dmz</p>&mdash; BubbleGumPop (@BubbleGumPop510) <a href="https://x.com/BubbleGumPop510/status/1759007658462548349?ref_src=twsrc%5Etfw">February 18, 2024</a></blockquote>
+<script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+
 ## Rashard Kelly 
 MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/) . . . @ucla hi from [Remote @Nasa-JPL](https://holetoanotheruniverse40.github.io/compiling/) 
 
