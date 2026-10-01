@@ -7,6 +7,15 @@ title: "@nasa-jpl TroubleTicketsNiSSUes"
 image: Sun_Microsystems_SunFire_X4150_Cluster.jpeg
 ---
 
+@nasa , @eodis-nasa @doug-newman-nasa @usgs @la-county-isd hi I wanted to report that the @github account for @Nasa-jpl is under account restrictions [@usdoj I know this was public](https://www.nasa.gov/foia/) like most @nasa GitHub home pages, so its a sign of disablement, please check on the admin @nasa-giss from here its a redirect and there is a flash of [dareMightyThings](https://science.nasa.gov/resource/dare-mighty-things/) ///  [github.com/nasa-jpl/nasa-jpl.github.io](https://github.com/nasa-jpl/nasa-jpl.github.io) but the old front end is not working properly [@la-county-isd holly j mitchell @lacmta](https://en.wikipedia.org/wiki/Talk:Holly_Mitchell)
+<img  alt="image" src="https://github.com/user-attachments/assets/e9a82ce7-d94d-4fda-abc3-9c7ef59f8268" />
+
+
+@nasa-pds `This branch is 3333 commits ahead of pages-themes/architect:master.` [@foratlanta github.com/pages-themes/architect/commit/ddeff256ff2193f0ba3949e9ac829781b9f943e3](https://github.com/pages-themes/architect/commit/ddeff256ff2193f0ba3949e9ac829781b9f943e3)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/CM079NRtbjI?si=-LYxWpbgJxH70zHL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+[📺 `Watch` : "No Kings" protests, notable speeches @NBCNEWS @la-county-isd holly j miutchell @lacmta](https://youtu.be/Y_e_u_6RogY) // [📺 Live: Los Angeles No Kings protest](https://youtu.be/QWtx_hmyOyw)
 
 @nasa-jpl `https://studio.youtube.com/channel-appeal?authuser=0` . . . @CityOfLosAngeles I am in central and that is where I last logged in can someone talk to my management team about reneabling my account, it was disabled from here [@la-county-isd holly j miutchell @lacmta](https://boardagendas.metro.net/person/holly-j-mitchell-39c7ff59ec43/)
 <img   alt="image @nasa-jpl my @youtube account was disabled so I don't know what to do about alot of the fact checking I was doing for @cbs-news-data or us @nasa! @whitehouse @deptofwar how can I restore my account ??? @CityOfLosAngeles @Google @ForAtlanta - @ra5hard " src="https://github.com/user-attachments/assets/1d1a415c-8f08-42b2-8006-acee519d6fa7" />
