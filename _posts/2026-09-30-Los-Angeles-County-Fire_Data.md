@@ -11,7 +11,7 @@ image: shocked-i-know-this.gif
 
 ![https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005568/Overview_HD.png](https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005568/Overview_HD.png) 
 
-[Station 46256 - Long Beach Channel, CA (215) @usnavy @longbeachinnovationteam @la-cunty-isd](https://www.ndbc.noaa.gov/station_realtime.php?station=46256) its our bouy! @CityOFLosAngeles that's enough to debate the whole la [city county thing](https://www.dailynews.com/2026/09/30/la-charter-reform-committee-to-look-at-expanding-city-council-lapd-reform-non-citizen-voting/) @newshour  
+[Station 46256 - Long Beach Channel, CA (215) @usnavy @longbeachinnovationteam @la-county-isd](https://www.ndbc.noaa.gov/station_realtime.php?station=46256) its our bouy! @CityOFLosAngeles that's enough to debate the whole la [city county thing](https://www.dailynews.com/2026/09/30/la-charter-reform-committee-to-look-at-expanding-city-council-lapd-reform-non-citizen-voting/) @newshour  
 
 <img  alt=" @nasa-jpl @datadesk nasa-worldview-2025 JAN 06-to-2025 JAN 19 (1)" src="https://github.com/user-attachments/assets/cc9ba138-21c6-469e-a8a1-74aefe542bd3" />
 
