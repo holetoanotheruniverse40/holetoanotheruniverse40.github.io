@@ -5,6 +5,58 @@ published: true
 title: LA_COUNTY_FiREDATA
 image: shocked-i-know-this.gif
 ---
+
+
+<img   alt="image (https://www.ndbc.noaa.gov/station_realtime.php?station=46256) its our bouy! @CityOFLosAngeles that's enough to debate the whole la" src="https://github.com/user-attachments/assets/fd75c906-56ef-4cd7-a557-64244926b632" />
+
+![https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005568/Overview_HD.png](https://svs.gsfc.nasa.gov/vis/a000000/a005500/a005568/Overview_HD.png) 
+
+[Station 46256 - Long Beach Channel, CA (215) @usnavy @longbeachinnovationteam @la-cunty-isd](https://www.ndbc.noaa.gov/station_realtime.php?station=46256) its our bouy! @CityOFLosAngeles that's enough to debate the whole la [city county thing](https://www.dailynews.com/2026/09/30/la-charter-reform-committee-to-look-at-expanding-city-council-lapd-reform-non-citizen-voting/) @newshour  
+
+<img  alt=" @nasa-jpl @datadesk nasa-worldview-2025 JAN 06-to-2025 JAN 19 (1)" src="https://github.com/user-attachments/assets/cc9ba138-21c6-469e-a8a1-74aefe542bd3" />
+
+<img  alt=" @blackgirlscode @whitehouse @la-county-isd nasa-worldview-2025 JAN 06-to-2025 JAN 19" src="https://github.com/user-attachments/assets/dfa6c9fa-32ef-441e-9e03-3efcf8637e11" />
+
+
+## _Must Be Dues · Melba Moore_
+@nasa-jpl I think she is sleeping outside [LAPD_CENTRAL @Cityoflosangeles](https://www.youtube.com/watch?v=Eu8K8LEaUy0&list=RDEu8K8LEaUy0&start_radio=1)
+<img   alt="image" src="https://github.com/user-attachments/assets/c92a0ffd-c6a1-476e-8c16-622a38531f3a" />
+
+
+<img alt="586787943-9675795c-506c-455d-8cb6-d7dd3fa6b834 image image image #Mero hi @hot97 i hope you got my email with hispanic @capcom @CapcomUSA
+  games @LanaJHarris is there issues between us resuming contact because of my past as a underground show attending @FatBeats customer ? @NASA-JPL #HiSTORY @FatBEATS btw @NithyafortheCity talk to @lanajharris 
+I Went To Magic City Str*p Club To Review Food . . @cityoflosangeles  . not the woman https://youtu.be/5vnGp_XbIMM <~ @keishaforga its my situation you guys caused @deptofwar they made me late on my maps @nasa-pds its thier fault we were late im sorry @normani @blackgirlscode im not pressing charges @latto @essencemag 
+@repkarenbass @SupervisorHollyJMitchell @fox5atlanta " src="https://github.com/user-attachments/assets/8d4cf77d-0378-446c-908e-c179d1e32220" />
+<img  alt="586788407-7da4ad9d-24da-40a9-93be-44cdc409c421 image image image #Mero hi @hot97 i hope you got my email with hispanic @capcom @CapcomUSA
+  games @LanaJHarris is there issues between us resuming contact because of my past as a underground show attending @FatBeats customer ? @NASA-JPL #HiSTORY @FatBEATS btw @NithyafortheCity talk to @lanajharris 
+I Went To Magic City Str*p Club To Review Food . . @cityoflosangeles  . not the woman https://youtu.be/5vnGp_XbIMM <~ @keishaforga its my situation you guys caused @deptofwar they made me late on my maps @nasa-pds its thier fault we were late im sorry @normani @blackgirlscode im not pressing charges @latto @essencemag 
+@repkarenbass @SupervisorHollyJMitchell @fox5atlanta " src="https://github.com/user-attachments/assets/ecf572e8-e965-43a2-806d-5d3680a3be00" />
+
+## Checking In On Pacific Palisades With Councilmember Traci Park
+ [WATCH - youtu.be/d6ykSPXXzxQ?si=aY-yHzhrdmRSW-AR](https://youtu.be/d6ykSPXXzxQ?si=aY-yHzhrdmRSW-AR)
+@Datadesk @nasa-pds @Cityoflosangeles _@USGS_
+There are no shortcuts for rebuilding the Pacific Palisades. Even those who are returning are daunted by the task, wondering who else will come back, and nervous about the hidden dangers of the toxic debris produced by the fire. Homes are starting to go up, and there is a plan for at least some of those third spaces – the elementary schools, the high school, and the community center. But affordability is still a big hurdle that will determine whether people can return, and there are still a lot of questions about how to make the community safer when the next disaster strikes. There is also a lot of anger about why any of this was allowed to happen in the first place — most of it is directed at L.A. Mayor Karen Bass. By contrast, the Palisades’ elected city councilmember Traci Park is seen by many residents as a champion. She joins Kate to talk about what’s next for the area. Guest: Traci Park, L.A. City Councilmember, 11th District. Pacific Palisades Vision Plan:
+[@CityOfLosAngeles @StateOfCalifornia @LaCDMH cd11.lacity.gov/news/pacific-palisades-rebuild-vision](https://cd11.lacity.gov/news/pacific-palisades-rebuild-vision)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/71792f68-de83-4396-aa36-eed4b21e06db" />
+
+![https://cd11.lacity.gov/sites/g/files/wph2151/files/styles/narrow_article_cover_842x474/public/2025-08/Screenshot%202025-08-07%20at%206.09.59%E2%80%AFPM_1.png?h=5b86cb75&itok=K_MomXwG](https://cd11.lacity.gov/sites/g/files/wph2151/files/styles/narrow_article_cover_842x474/public/2025-08/Screenshot%202025-08-07%20at%206.09.59%E2%80%AFPM_1.png?h=5b86cb75&itok=K_MomXwG)
+
+
+EMIT_L1B_RAD_001_20260529T193508_2614913_003 @emit-sds @la-county-isd @nasa-jpl @CiTYOFLOSANGELES
+<img   alt="EMIT_L1B_RAD_001_20260529T193508_2614913_003 586787943-9675795c-506c-455d-8cb6-d7dd3fa6b834 image image image #Mero hi @hot97 i hope you got my email with hispanic @capcom @CapcomUSA
+  games @LanaJHarris is there issues between us resuming contact because of my past as a underground show attending @FatBeats customer ? @NASA-JPL #HiSTORY @FatBEATS btw @NithyafortheCity talk to @lanajharris 
+I Went To Magic City Str*p Club To Review Food . . @cityoflosangeles  . not the woman https://youtu.be/5vnGp_XbIMM <~ @keishaforga its my situation you guys caused @deptofwar they made me late on my maps @nasa-pds its thier fault we were late im sorry @normani @blackgirlscode im not pressing charges @latto @essencemag 
+@repkarenbass @SupervisorHollyJMitchell @fox5atlanta " src="https://github.com/user-attachments/assets/5607e59f-9f27-4024-bda8-135a016d4448" />
+
+
+
+<img  alt="EMIT_L1B_RAD_001_20260615T203704_2616613_011 image image image #Mero hi @hot97 i hope you got my email with hispanic @capcom @CapcomUSA
+  games @LanaJHarris is there issues between us resuming contact because of my past as a underground show attending @FatBeats customer ? @NASA-JPL #HiSTORY @FatBEATS btw @NithyafortheCity talk to @lanajharris 
+I Went To Magic City Str*p Club To Review Food . . @cityoflosangeles  . not the woman https://youtu.be/5vnGp_XbIMM <~ @keishaforga its my situation you guys caused @deptofwar they made me late on my maps @nasa-pds its thier fault we were late im sorry @normani @blackgirlscode im not pressing charges @latto @essencemag 
+@repkarenbass @SupervisorHollyJMitchell @fox5atlanta " src="https://github.com/user-attachments/assets/61787244-638b-4ae2-919f-4a5109b23c67" />
+
+
 @nasa-jpl @blackgirlscode im burning now i made it like a 3rd through gucci new tape @Cityoflosangeles @nasa-pds healing [@StateOfCalifornia another firepage @la-county-isd HOLLY J Mitchell](https://thakarashard.github.io/rashardmro/lafire)
 
 
