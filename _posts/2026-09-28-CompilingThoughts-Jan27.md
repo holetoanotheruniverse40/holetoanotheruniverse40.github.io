@@ -6,6 +6,51 @@ categories: art hr atlanta nasa la
 published: true
 image: luckyGirl.png
 ---
+# Rashard Kelly NasaJpl MRO JUNO iSS [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/)
+
+
+
+## Rashard & Erika
+@[Normaniofficial@outlook.com](mailto:Normaniofficial@outlook.com) remember i just got hurt man, i knew you had bonds , can you read this book i wrote about erika [blurb.com/b/328121-all-about-erika](blurb.com/b/328121-all-about-erika) / [blurb.com/b/328121?](blurb.com/b/328121?)  You Should be able to see it all online @[@ForAtlanta keishaforgovernor@gmail.com](mailto:keishaforgovernor@gmail.com) i was not honest at that time with my self and where my choices were leading me, but i wrote honestly and 2008 when we were in pioneer school i started becoming aware of early signs of cheating @[HollyJMitchell@bos.lacounty.gov @LA-county-isd @LACMTA](mailto:HollyJMitchell@bos.lacounty.gov) ... thats how the photohobby started, i had memory problems, i was not spying on her [blurb.com/b/3059722](blurb.com/b/3059722) /// [blurb.com/b/3059722-all-around-atlanta#](blurb.com/b/3059722-all-around-atlanta#) @[HEATHER MATA](mailto:40988@lapd.online) @[mayor@miamidade.gov](mailto:mayor@miamidade.gov) @BLURB <~ @nasa-pds @nasa-jpl @eodis-nasa @doug-newman-nasa hi i hope you look over the books @Blackgirlscode @Deptofwar @whitehouse 
+<img  alt="image image @nasa-jpl @foratlanta GetAdvice @Blackgirlscode @cityoflosangeles @nbcnews @newshour how do atlanta girls handle supporting a bad party where ppl started a fire ? @ForAtlanta @[Normaniofficial@outlook.com](mailto:Normaniofficial@outlook.com) remember i just got hurt man, i knew you had bonds , can you read this book i wrote about erika [blurb.com/b/328121-all-about-erika](blurb.com/b/328121-all-about-erika) / [blurb.com/b/328121?](blurb.com/b/328121?)  You Should be able to see it all online @[@ForAtlanta keishaforgovernor@gmail.com](mailto:keishaforgovernor@gmail.com) i was not honest at that time with my self and where my choices were leading me, but i wrote honestly and 2008 when we were in pioneer school i started becoming aware of early signs of cheating @[HollyJMitchell@bos.lacounty.gov @LA-county-isd @LACMTA](mailto:HollyJMitchell@bos.lacounty.gov) ... thats how the photohobby started, i had memory problems, i was not spying on her [blurb.com/b/3059722](blurb.com/b/3059722) /// [blurb.com/b/3059722-all-around-atlanta#](blurb.com/b/3059722-all-around-atlanta#) @[HEATHER MATA](mailto:40988@lapd.online) @[mayor@miamidade.gov](mailto:mayor@miamidade.gov) @BLURB <~ @nasa-pds @nasa-jpl @eodis-nasa @doug-newman-nasa hi i hope you look over the books " src="https://github.com/user-attachments/assets/b248d05a-4212-4a28-b114-cbe4ca289346" />
+
+![https://acworth-ga.gov/wp-content/uploads/2023/06/acw-city-logo.png](https://acworth-ga.gov/wp-content/uploads/2023/06/acw-city-logo.png)
+
+<img  alt="image @nasa-jpl @foratlanta GetAdvice @Blackgirlscode @cityoflosangeles @nbcnews @newshour how do atlanta girls handle supporting a bad party where ppl started a fire ? @ForAtlanta @[Normaniofficial@outlook.com](mailto:Normaniofficial@outlook.com) remember i just got hurt man, i knew you had bonds , can you read this book i wrote about erika [blurb.com/b/328121-all-about-erika](blurb.com/b/328121-all-about-erika) / [blurb.com/b/328121?](blurb.com/b/328121?)  You Should be able to see it all online @[@ForAtlanta keishaforgovernor@gmail.com](mailto:keishaforgovernor@gmail.com) i was not honest at that time with my self and where my choices were leading me, but i wrote honestly and 2008 when we were in pioneer school i started becoming aware of early signs of cheating @[HollyJMitchell@bos.lacounty.gov @LA-county-isd @LACMTA](mailto:HollyJMitchell@bos.lacounty.gov) ... thats how the photohobby started, i had memory problems, i was not spying on her [blurb.com/b/3059722](blurb.com/b/3059722) /// [blurb.com/b/3059722-all-around-atlanta#](blurb.com/b/3059722-all-around-atlanta#) @[HEATHER MATA](mailto:40988@lapd.online) @[mayor@miamidade.gov](mailto:mayor@miamidade.gov) @BLURB <~ @nasa-pds @nasa-jpl @eodis-nasa @doug-newman-nasa hi i hope you look over the books  " src="https://github.com/user-attachments/assets/0f88c0bc-5fc8-4081-b7e0-90eeb7500ed2" />
+
+<img  alt="image image @nasa-jpl @foratlanta GetAdvice @Blackgirlscode @cityoflosangeles @nbcnews @newshour how do atlanta girls handle supporting a bad party where ppl started a fire ? @ForAtlanta @[Normaniofficial@outlook.com](mailto:Normaniofficial@outlook.com) remember i just got hurt man, i knew you had bonds , can you read this book i wrote about erika [blurb.com/b/328121-all-about-erika](blurb.com/b/328121-all-about-erika) / [blurb.com/b/328121?](blurb.com/b/328121?)  You Should be able to see it all online @[@ForAtlanta keishaforgovernor@gmail.com](mailto:keishaforgovernor@gmail.com) i was not honest at that time with my self and where my choices were leading me, but i wrote honestly and 2008 when we were in pioneer school i started becoming aware of early signs of cheating @[HollyJMitchell@bos.lacounty.gov @LA-county-isd @LACMTA](mailto:HollyJMitchell@bos.lacounty.gov) ... thats how the photohobby started, i had memory problems, i was not spying on her [blurb.com/b/3059722](blurb.com/b/3059722) /// [blurb.com/b/3059722-all-around-atlanta#](blurb.com/b/3059722-all-around-atlanta#) @[HEATHER MATA](mailto:40988@lapd.online) @[mayor@miamidade.gov](mailto:mayor@miamidade.gov) @BLURB <~ @nasa-pds @nasa-jpl @eodis-nasa @doug-newman-nasa hi i hope you look over the books " src="https://github.com/user-attachments/assets/2d61af60-c3e3-4f5b-8d1c-947eb4d51578" />
+
+<img  alt=" @[Normaniofficial@outlook.com](mailto:Normaniofficial@outlook.com) remember i just got hurt man, i knew you had bonds , can you read this book i wrote about erika [blurb.com/b/328121-all-about-erika](blurb.com/b/328121-all-about-erika) / [blurb.com/b/328121?](blurb.com/b/328121?)  You Should be able to see it all online @[@ForAtlanta keishaforgovernor@gmail.com](mailto:keishaforgovernor@gmail.com) i was not honest at that time with my self and where my choices were leading me, but i wrote honestly and 2008 when we were in pioneer school i started becoming aware of early signs of cheating @[HollyJMitchell@bos.lacounty.gov @LA-county-isd @LACMTA](mailto:HollyJMitchell@bos.lacounty.gov) ... thats how the photohobby started, i had memory problems, i was not spying on her [blurb.com/b/3059722](blurb.com/b/3059722) /// [blurb.com/b/3059722-all-around-atlanta#](blurb.com/b/3059722-all-around-atlanta#) @[HEATHER MATA](mailto:40988@lapd.online) @[mayor@miamidade.gov](mailto:mayor@miamidade.gov) @BLURB <~ @nasa-pds @nasa-jpl @eodis-nasa @doug-newman-nasa hi i hope you look over the books  image GetAdvice @Blackgirlscode @cityoflosangeles @nbcnews @newshour how do atlanta girls handle supporting a bad party where ppl started a fire ? @ForAtlanta " src="https://github.com/user-attachments/assets/23ab4af1-489e-48fa-b054-a1877eca6c11" />
+<img alt="image" src="https://github.com/user-attachments/assets/4ac8a87f-4e4c-4c26-a168-f6a021d961aa" />
+
+<img  alt="image @blackgirlscode " src="https://github.com/user-attachments/assets/7e8f5285-5edb-432a-8c0d-bd8da9f8f945" />
+
+
+<img  alt="image" src="https://github.com/user-attachments/assets/09d55b1e-5c7a-47ea-963e-c506fcb6eb36" />
+
+<img    alt="image" src="https://github.com/user-attachments/assets/54ba4768-1c60-4eda-94d3-3bb796dcd795" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/a5424fbf-b981-4a78-9819-8c5d78402dfc" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/40320ffc-521f-427c-ae06-fc5fab7ab4d3" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/73252199-ff61-4c3e-9a4e-efc21f4bad1b" />
+
+<img alt="image" src="https://github.com/user-attachments/assets/a9325e1f-b298-4688-8227-69d6eff075d4" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/6eb1ab4d-b469-435e-8f9e-ed17ac2c44a3" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/ff607eb4-2f94-46a6-98cc-68166fa0c453" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/ea91e936-9b21-4e92-84f2-a825dccf9ff0" />
+
+<img   alt="image" src="https://github.com/user-attachments/assets/6efe872c-d8d4-451c-9051-7666fc087b9f" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/f2830884-c031-4780-bbb2-cbc59afd4e9f" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/22f9bef7-677a-4ce1-b440-a07feb042187" />
+
+
 
 [Laila's Wisdom re:coral @blackgirlscode](https://youtu.be/btYlWphnfbE)
 [WipEout® OST [PSX]: CoLD SToRAGE - Messij](https://youtu.be/4uQnXvRndcE?si=Shb49Z9P4TdnkV2s) [California Constitution](https://archives.cdn.sos.ca.gov/collections/1879/archive/1879-constitution.pdf)
