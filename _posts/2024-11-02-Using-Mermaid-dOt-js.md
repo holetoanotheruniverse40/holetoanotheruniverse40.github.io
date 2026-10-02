@@ -5,6 +5,11 @@ published: false
 image: mermaid.webp
 ---
 
+<div class="mermaid">
+pie title NETFLIX
+         "Time spent looking for movie" : 90
+         "Time spent watching it" : 10
+</div>
     
 # Mermaid Sequence Diagram: Blogging app service communication
 <div class="mermaid">
