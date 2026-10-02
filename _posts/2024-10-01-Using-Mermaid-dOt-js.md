@@ -6,6 +6,22 @@ image: mermaid.webp
 ---
 
 <div class="mermaid">
+gitGraph:
+    commit "Ashish"
+    branch newbranch
+    checkout newbranch
+    commit id:"1111"
+    commit tag:"test"
+    checkout main
+    commit type: HIGHLIGHT
+    commit
+    merge newbranch
+    commit
+    branch b2
+    commit
+</div>
+
+<div class="mermaid">
 pie title NETFLIX
          "Time spent looking for movie" : 90
          "Time spent watching it" : 10
