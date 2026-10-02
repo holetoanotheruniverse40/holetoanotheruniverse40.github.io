@@ -10,6 +10,11 @@ image: LongBeachEcostress.png
 ## Rashard Kelly 
  MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt @ForAtlanta - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/) . . . @ucla hi from [Remote @Nasa-JPL](https://holetoanotheruniverse40.github.io/compiling/) 
 
+ @la-county-isd @longbeachinnovationteam, I saw a couple items to ref [Meeting of MONDAY, SEPTEMBER 14, 2026](https://polb.granicus.com/GeneratedAgendaViewer.php?view_id=78&clip_id=7931)
+
+@eodis-nasa earthdata search went flat! idk if the song i was listening to from @blackgirlscode was the reason, she a super intendint in georgia, idk what she do here! lol @usgs [search.earthdata.nasa.gov/search?long=-52.734375](https://search.earthdata.nasa.gov/search?long=-52.734375)
+<img alt="image" src="https://github.com/user-attachments/assets/2fe1e23c-5667-4cb5-ba60-673da8fc9049" />
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A856935166&color=%23ff1f00&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/kalenbree" title="kalenbree" target="_blank" style="color: #cccccc; text-decoration: none;">kalenbree</a> · <a href="https://soundcloud.com/kalenbree/strawberry" title="Strawberry (available on ALL PLATFORMS)" target="_blank" style="color: #cccccc; text-decoration: none;">Strawberry (available on ALL PLATFORMS)</a></div>
  
 ## 2025 NOAA NGS DSS 4-Band 8 Bit Imagery:
 # Long Beach, CA - [DataAccess AllFiles @nmfs-ost](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/index.html)
@@ -62,7 +67,7 @@ spacex.com      mail exchanger = 5 mxa-003ea501.gslb.gpphosted.com.
 
 
 [396000e3738000n -.tif 543.32 MB @nasa-jpl](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/396000e3738000n.tif)
-<img width="1920" height="1032" alt="image" src="https://github.com/user-attachments/assets/ce7b115a-cff3-4db5-9814-6409232b020c" />
+<img   alt="image" src="https://github.com/user-attachments/assets/ce7b115a-cff3-4db5-9814-6409232b020c" />
 
 [384000e3738000n.tif 487mb -.tif @noaa-gov](https://coastalimagery.blob.core.windows.net/digitalcoast/LongBeachCA_RGBN_2025_10317/384000e3738000n.tif)
 <img  alt="image" src="https://github.com/user-attachments/assets/ca42caf2-02c2-443b-adef-99950260b2ef" />
