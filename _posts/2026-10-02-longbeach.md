@@ -11,7 +11,7 @@ image: LongBeachEcostress.png
  MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt @ForAtlanta - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/) . . . @ucla hi from [Remote @Nasa-JPL](https://holetoanotheruniverse40.github.io/compiling/) 
 
 
- @eodis-nasa i had to type it in manually @cityoflosangeles karen bass @la-county-isd holly j mitchell @lacmta
+ @eodis-nasa i had to type it in manually [@cityoflosangeles karen bass @la-county-isd holly j mitchell @lacmta @doug-newman-nasa](https://search.earthdata.nasa.gov/search?sp[0]=-118.19374%2C33.77005&lat=33.769969593386286&long=-118.19365040057585&zoom=19.321836825647374)
  
 <img  alt="image @eodis-nasa i had to type it in manually @cityoflosangeles karen bass @la-county-isd holly j mitchell @lacmta" src="https://github.com/user-attachments/assets/4d78cebd-65f5-4209-9479-8d4007775c80" />
 
