@@ -43,6 +43,366 @@ z' &=& - &x \cos\phi &+& z \sin\phi \\
 ![https://memorial.bellsystem.com/images/bell_stripe_header.png](https://memorial.bellsystem.com/images/bell_stripe_header.png) 
 
 
+
+[Amen (Intro) · CyHi](https://youtu.be/37S0l3009gU) // [Hypnotize (Intro) · Young Jeezy](https://youtu.be/zcrLvkF19Nk?si=jxhI-NpnJjKnTJ1s) // [Bob Marley - Is This Love](https://youtu.be/69RdQFDuYPI?si=NMB8sqLgvqV1rrfm) // [Bob Marley & The Wailers - Jamming](https://youtu.be/oqVy6eRXc7Q?si=h4IyNpUZ6cbUEgG6) // [Bob Marley - Could You Be Loved ](https://youtu.be/WOvSSC0UsPI?si=xO9n2x4dfXkwqN1f) // [NICKI MINAJ "Bust Down Barbiana" @ForAtlanta!](https://youtu.be/oMXn0HSxoys?si=LCnwbTpHI2XoRbGh) // [Yo Gotti - Down In the DM](https://youtu.be/YXSpXO4N-tI?list=RDYXSpXO4N-tI) // 
+
+--- 
+
+
+@howard-university-web-services the latrice known as Lana J HArris is offline on youtube, Hot97 has history with @Nbcnews radio but who knows how that filters down in the clear channel prostitution playlist pumper system logs @blackgirlscode [youtube.com/results?search_query=hot97+tv](https://www.youtube.com/results?search_query=hot97+tv)
+<img  alt="image" src="https://github.com/user-attachments/assets/82bb1ad8-10f4-46a1-ba84-3d7d4225fea0" />
+
+
+# Yo Gotti - Down In the DM 
+@blackgirlscode hi @deptofwar it went down [@CityOfLosAngeles @ForATlatna @Webb @Salesforce - youtu.be/YXSpXO4N-tI?list=RDYXSpXO4N-tI](https://youtu.be/YXSpXO4N-tI?list=RDYXSpXO4N-tI) @NBCNEWS @Cbs-news-data
+<img alt="image" src="https://github.com/user-attachments/assets/0317c334-6ad3-46b1-8187-04cd1724285f" />
+
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A1647163917&color=%233f93fa&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/songsthatarentonscbackup" title="Songs That Aren&#x27;t On Sc" target="_blank" style="color: #cccccc; text-decoration: none;">Songs That Aren&#x27;t On Sc</a> · <a href="https://soundcloud.com/songsthatarentonscbackup/justin-bieber-beauty-and-a-beat-feat-nicki-minaj" title="Justin Bieber - Beauty And A Beat (feat. Nicki Minaj)" target="_blank" style="color: #cccccc; text-decoration: none;">Justin Bieber - Beauty And A Beat (feat. Nicki Minaj)</a></div>
+
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A1192821031&color=%233f93fa&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/youngmoneybarbie" title="Nicki Minaj" target="_blank" style="color: #cccccc; text-decoration: none;">Nicki Minaj</a> · <a href="https://soundcloud.com/youngmoneybarbie/bust-down-barbiana-freestyle" title="Bust Down Barbiana (Freestyle)" target="_blank" style="color: #cccccc; text-decoration: none;">Bust Down Barbiana (Freestyle)</a></div>
+
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A1192830019&color=%233f93fa&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/youngmoneybarbie" title="Nicki Minaj" target="_blank" style="color: #cccccc; text-decoration: none;">Nicki Minaj</a> · <a href="https://soundcloud.com/youngmoneybarbie/barbie-drip" title="Barbie Drip" target="_blank" style="color: #cccccc; text-decoration: none;">Barbie Drip</a></div>
+
+[_`GetAdvice @Blackgirlscode`_](https://iyanla.com/personal-message/)
+<img  alt="image" src="https://github.com/user-attachments/assets/15878e57-c3be-4006-9c05-cc84d41d4d04" />
+<img alt="image" src="https://github.com/user-attachments/assets/b64e397b-83df-48b3-9424-fe1ab4cf83ae" />
+
+
+[@ForAtlanta worldview.earthdata.nasa.gov/?v=-87.89695114284878,32.570104595711314,-81.8908336754216,35.52624053671063&l=Reference_Labels_15m,Admin_Boundaries(hidden),DoS_International_Boundaries(hidden),Coastlines_15m,GRUMP_Settlements,GRanD_Reservoirs,GRanD_Dams,VIIRS_NOAA21_DayNightBand,GMI_Brightness_Temp_Asc,VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor,MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor(hidden)&lg=true&tr=geostationary&t=2026-10-04-T00%3A00%3A00Z](https://worldview.earthdata.nasa.gov/?v=-87.89695114284878,32.570104595711314,-81.8908336754216,35.52624053671063&l=Reference_Labels_15m,Admin_Boundaries(hidden),DoS_International_Boundaries(hidden),Coastlines_15m,GRUMP_Settlements,GRanD_Reservoirs,GRanD_Dams,VIIRS_NOAA21_DayNightBand,GMI_Brightness_Temp_Asc,VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor,MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor(hidden)&lg=true&tr=geostationary&t=2026-10-04-T00%3A00%3A00Z)
+<img  alt="image" src="https://github.com/user-attachments/assets/3eb20c3b-2045-4d53-97c3-99b60b259464" />
+
+[Resivoi9rs @foratlanta ](https://worldview.earthdata.nasa.gov/?v=-190.46521955511233,-83.15717858606062,160.92185031939553,89.7911448677987&l=Reference_Labels_15m(hidden),Admin_Boundaries(hidden),DoS_International_Boundaries(hidden),Coastlines_15m(opacity=0.67),GRanD_Reservoirs,GRUMP_Settlements,GRanD_Dams,OPERA_L3_DIST-ALERT-HLS_Color_Index(disabled=9),HLS_L30_Nadir_BRDF_Adjusted_Reflectance(hidden),HLS_S30_Nadir_BRDF_Adjusted_Reflectance(hidden),Land_Water_Map&lg=true&tr=land_disturbance&t=2026-10-04-T18%3A32%3A23Z) 
+@doug-newman-nasa gm! our [Georgia Federal Employee manager](https://www.imdb.com/name/nm10239299/bio/) Kaeisha Bottoms is running for gov, Mr Kemp our current Gov is easy to contact about these reservoirs 
+Lake LAnier
+<img  alt="EMIT_L1B_RAD_001_20250624T151627_2517510_021" src="https://github.com/user-attachments/assets/2c3108d4-3a4c-4b6e-9fe8-424ea51ae9e0" />
+Lake Hartwell is a man-made reservoir bordering Georgia and South Carolina and encompassing parts of the Savannah, Tugaloo, and Seneca Rivers. Lake Hartwell is one of the largest recreation lakes in the Southeastern United States. It was created by the construction of the Hartwell Dam, completed in 1962 and located on the Savannah River seven miles (11 km) below the point where the Tugaloo and Seneca Rivers join to form the Savannah. [Wiki](https://en.wikipedia.org/wiki/Lake_Hartwell) // [Water dashboard @usgs]( https://dashboard.waterdata.usgs.gov/app/nwd/en/?aoi=bbox-%5B-85.02233%2C33.39612%2C-81.02581%2C35.02273%5D&view=%7B%22basemap%22%3A%22UsgsTopo%22%2C%22bounds%22%3A%22-85.02232651981716%2C33.39612220329303%2C-81.02580822921355%2C35.022732678679425%22%2C%22insetMap%22%3Afalse%2C%22panel%22%3A%7B%22id%22%3A%22ViewerLayers%22%2C%22open%22%3Afalse%2C%22checkbox%22%3A%220%2C10%2C21%2C22%2C23%22%2C%22hiddenSubgroup%22%3A%22%22%2C%22range%22%3A%220%3A1.0%2C1%3A1.0%2C2%3A1.0%2C3%3A1.0%2C4%3A1.0%2C5%3A1.0%2C6%3A1.0%2C7%3A1.0%2C8%3A0.8%2C9%3A0.3%2C10%3A0.5%2C11%3A0.5%2C12%3A0.5%2C13%3A0.5%2C14%3A0.5%2C15%3A0.5%2C16%3A0.5%2C17%3A1.0%2C18%3A1.0%2C19%3A1.0%2C20%3A1.0%22%2C%22select%22%3A%220%3A0%2C1%3A0%2C2%3A0%2C3%3A0%2C4%3A0%2C5%3A0%2C6%3A0%2C7%3A0%2C8%3A0%2C9%3A0%2C10%3A0%2C11%3A0%2C12%3A0%2C13%3A0%2C14%3A0%2C15%3A0%2C16%3A0%2C17%3A0%2C18%3A0%2C19%3A0%22%7D%7D ) // [EarthData @eodis-nasa @foratlanta](https://search.earthdata.nasa.gov/search/granules?p=C2408009906-LPCLOUD&pg[0][v]=f&pg[0][gsk]=-start_date&g=G4282425464-LPCLOUD&q=emit&circle[0]=-82.83384%2C34.45225%2C3679&lat=34.68221285&long=-82.74397522042834&zoom=9.499682405485675)
+<img  alt="EMIT_L1B_RAD_001_20260815T180344_2622712_044" src="https://github.com/user-attachments/assets/3b74e026-62d9-4d58-b985-d4bbfc1f8817" />
+
+# WQHT
+
+![@deptofwar @nasa-jpl is Lana j Harris ojk @foratlanta https://yt3.googleusercontent.com/WqrGBsBFCt6fslSFk6xOZTHVqtULMD71hoHbY7CotJyikwG5A8CNG0A9-O3KfQHmF68Dx7at=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj](https://yt3.googleusercontent.com/WqrGBsBFCt6fslSFk6xOZTHVqtULMD71hoHbY7CotJyikwG5A8CNG0A9-O3KfQHmF68Dx7at=w1060-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj) 
+
+<img   alt="image @nasa-jpl I need to find out where she is, her mom is going to kill me, I did not check on her show after I got angry @nasa-pds @blackgirlscode _FormerCallSigns_ [Read - .wikipedia.org/wiki/WQHT](https://en.wikipedia.org/wiki/WQHT) @nasa-jpl @fbicyber @dhs-gov @ForAtlanta @CityOfLosAngeles @Hulu @NetFlix
+[@NBCNEWS @Disney](https://www.tiktok.com/@lanajharris) hi I don't want to bug [Lana J HArris](https://www.tiktok.com/@lanajharris) / oh her [@tiktok](https://www.tiktok.com/@lanajharris) broke I gotta see how she doing . . . @blackgirlscode @howard-university-web-services last week my @Youtube account for [HoleToAnotherUniverse40@gmail.com](mailto:holetoanotheruniverse@gmail.com) got suspended. Lana J Harris is part of a collective, if its [Latricia its a Howard Mom](https://www.facebook.com/latresha.fitzpatrick.2025/) [[1](https://www.instagram.com/latresha.fitzpatrick/)] [[2](https://bniamerica.com/en-US/memberdetails?encryptedMemberId=pSgDSxYDuxMSm4Y%2FXlO3gg%3D%3D&cmsv3=true&name=LaTresha+Fitzpatrick)] [[3](https://www.google.com/search?sca_esv=b88b68c618104966&rlz=1CASLJZ_enUS1235&sxsrf=APpeQnvJAta4jkVoEiJTLVkOoWs8poN1nQ:1791221495776&udm=2&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832VstEKsVDqPorK0Gahnm2nq-aQnTz_mBV-EZYISbLc-S3LQBbMYAGT8xXTqdTxRg04zS3ruzpNYXVbY3kOqiLf6smpXTQP8rjLnjKrCQfi-AqT13sapd-gtfM0yiwEXK5lbXCsrpWPGBG3C4qHz7cxTzH6h9vVv3KHRF3_GaNL1fqCyG3w&q=latresha+fitzpatrick&sa=X&ved=2ahUKEwiL2OCHtKOXAxVmJ0QIHdPNHjgQtKgLegQIGBAB&biw=957&bih=945&dpr=1)] if its [Latrice](https://www.facebook.com/thevirtiservway/) its a code name for a Howard girl, so I know I'm intimately involved with 2-3 girls that identify as [Latrice](https://www.chloebailey.net/) , [Tinashe](https://www.tinashenow.com/) are you the tall one ? - [@rashardikelly @nasa-pds](https://github.com/rashardikelly)
+[@la-county-isd @NewYorkCityCouncil](https://holetoanotheruniverse40.github.io/2026/09/30/Los-Angeles-County-Fire_Data.html) " src="https://github.com/user-attachments/assets/cf288e1f-74bc-41f7-93fa-6e882a14e0e5" />
+
+_FormerCallSigns_ [Read - .wikipedia.org/wiki/WQHT](https://en.wikipedia.org/wiki/WQHT) @nasa-jpl @fbicyber @dhs-gov @ForAtlanta @CityOfLosAngeles @Hulu @NetFlix
+[@NBCNEWS @Disney](https://www.tiktok.com/@lanajharris) hi I don't want to bug [Lana J HArris](https://www.tiktok.com/@lanajharris) / oh her [@tiktok](https://www.tiktok.com/@lanajharris) broke I gotta see how she doing . . . @blackgirlscode @howard-university-web-services last week my @Youtube account for [HoleToAnotherUniverse40@gmail.com](mailto:holetoanotheruniverse@gmail.com) got suspended. Lana J Harris is part of a collective, if its [Latricia its a Howard Mom](https://www.facebook.com/latresha.fitzpatrick.2025/) [[1](https://www.instagram.com/latresha.fitzpatrick/)] [[2](https://bniamerica.com/en-US/memberdetails?encryptedMemberId=pSgDSxYDuxMSm4Y%2FXlO3gg%3D%3D&cmsv3=true&name=LaTresha+Fitzpatrick)] [[3](https://www.google.com/search?sca_esv=b88b68c618104966&rlz=1CASLJZ_enUS1235&sxsrf=APpeQnvJAta4jkVoEiJTLVkOoWs8poN1nQ:1791221495776&udm=2&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832VstEKsVDqPorK0Gahnm2nq-aQnTz_mBV-EZYISbLc-S3LQBbMYAGT8xXTqdTxRg04zS3ruzpNYXVbY3kOqiLf6smpXTQP8rjLnjKrCQfi-AqT13sapd-gtfM0yiwEXK5lbXCsrpWPGBG3C4qHz7cxTzH6h9vVv3KHRF3_GaNL1fqCyG3w&q=latresha+fitzpatrick&sa=X&ved=2ahUKEwiL2OCHtKOXAxVmJ0QIHdPNHjgQtKgLegQIGBAB&biw=957&bih=945&dpr=1)] if its [Latrice](https://www.facebook.com/thevirtiservway/) its a code name for a Howard girl, so I know I'm intimately involved with 2-3 girls that identify as [Latrice](https://www.chloebailey.net/) , [Tinashe](https://www.tinashenow.com/) are you the tall one ? - [@rashardikelly @nasa-pds](https://github.com/rashardikelly)
+[@la-county-isd @NewYorkCityCouncil](https://holetoanotheruniverse40.github.io/2026/09/30/Los-Angeles-County-Fire_Data.html)
+
+
+```
+W2XWG (1940–1944)
+WEAF-FM (1944–1946)
+WNBC-FM (1946–1954)
+WRCA-FM (1954–1960)
+WNBC-FM (1960–1975)
+WNWS-FM (1975–1977)
+WYNY (1977–1988)
+```
+
+[Bob Marley - Is This Love](https://youtu.be/69RdQFDuYPI?si=NMB8sqLgvqV1rrfm) // [Bob Marley & The Wailers - Jamming](https://youtu.be/oqVy6eRXc7Q?si=h4IyNpUZ6cbUEgG6) // [Bob Marley - Could You Be Loved ](https://youtu.be/WOvSSC0UsPI?si=xO9n2x4dfXkwqN1f)
+
+<img  alt=" [Bob Marley - Is This Love](https://youtu.be/69RdQFDuYPI?si=NMB8sqLgvqV1rrfm) // [Bob Marley & The Wailers - Jamming](https://youtu.be/oqVy6eRXc7Q?si=h4IyNpUZ6cbUEgG6) // [Bob Marley - Could You Be Loved ](https://youtu.be/WOvSSC0UsPI?si=xO9n2x4dfXkwqN1f)
+ image mage @NBCNEWS hi I don't want to bug [Lana J HArris](https://www.tiktok.com/@lanajharris) / oh her @tiktok broke I gotta see how she doing . . . @blackgirlscode @howard-university-web-services last week my @Youtube account for [HoleToAnotherUniverse40@gmail.com](mailto:holetoanotheruniverse@gmail.com) got suspended. Lana J Harris is part of a collective, if its [Latricia its a Howard Mom](https://www.facebook.com/latresha.fitzpatrick.2025/) [[1](https://www.instagram.com/latresha.fitzpatrick/)] [[2](https://bniamerica.com/en-US/memberdetails?encryptedMemberId=pSgDSxYDuxMSm4Y%2FXlO3gg%3D%3D&cmsv3=true&name=LaTresha+Fitzpatrick)] [[3](https://www.google.com/search?sca_esv=b88b68c618104966&rlz=1CASLJZ_enUS1235&sxsrf=APpeQnvJAta4jkVoEiJTLVkOoWs8poN1nQ:1791221495776&udm=2&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832VstEKsVDqPorK0Gahnm2nq-aQnTz_mBV-EZYISbLc-S3LQBbMYAGT8xXTqdTxRg04zS3ruzpNYXVbY3kOqiLf6smpXTQP8rjLnjKrCQfi-AqT13sapd-gtfM0yiwEXK5lbXCsrpWPGBG3C4qHz7cxTzH6h9vVv3KHRF3_GaNL1fqCyG3w&q=latresha+fitzpatrick&sa=X&ved=2ahUKEwiL2OCHtKOXAxVmJ0QIHdPNHjgQtKgLegQIGBAB&biw=957&bih=945&dpr=1)] if its [Latrice](https://www.facebook.com/thevirtiservway/) its a code name for a Howard girl, so I know I'm intimately involved with 2-3 girls that identify as [Latrice](https://www.chloebailey.net/) , [Tinashe](https://www.tinashenow.com/) are you the tall one ? 
+[@la-county-isd](https://holetoanotheruniverse40.github.io/2026/09/30/Los-Angeles-County-Fire_Data.html)
+_FormerCallSigns_ [Read](https://en.wikipedia.org/wiki/WQHT) @nasa-jpl @fbicyber @dhs-gov @ForAtlanta @CityOfLosAngeles" src="https://github.com/user-attachments/assets/414e845a-0ba5-426f-807e-0ee054c9660d" />
+<img alt="image @NBCNEWS hi I don't want to bug [Lana J HArris](https://www.tiktok.com/@lanajharris) / oh her @tiktok broke I gotta see how she doing . . . @blackgirlscode @howard-university-web-services last week my @Youtube account for [HoleToAnotherUniverse40@gmail.com](mailto:holetoanotheruniverse@gmail.com) got suspended. Lana J Harris is part of a collective, if its [Latricia its a Howard Mom](https://www.facebook.com/latresha.fitzpatrick.2025/) [[1](https://www.instagram.com/latresha.fitzpatrick/)] [[2](https://bniamerica.com/en-US/memberdetails?encryptedMemberId=pSgDSxYDuxMSm4Y%2FXlO3gg%3D%3D&cmsv3=true&name=LaTresha+Fitzpatrick)] [[3](https://www.google.com/search?sca_esv=b88b68c618104966&rlz=1CASLJZ_enUS1235&sxsrf=APpeQnvJAta4jkVoEiJTLVkOoWs8poN1nQ:1791221495776&udm=2&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832VstEKsVDqPorK0Gahnm2nq-aQnTz_mBV-EZYISbLc-S3LQBbMYAGT8xXTqdTxRg04zS3ruzpNYXVbY3kOqiLf6smpXTQP8rjLnjKrCQfi-AqT13sapd-gtfM0yiwEXK5lbXCsrpWPGBG3C4qHz7cxTzH6h9vVv3KHRF3_GaNL1fqCyG3w&q=latresha+fitzpatrick&sa=X&ved=2ahUKEwiL2OCHtKOXAxVmJ0QIHdPNHjgQtKgLegQIGBAB&biw=957&bih=945&dpr=1)] if its [Latrice](https://www.facebook.com/thevirtiservway/) its a code name for a Howard girl, so I know I'm intimately involved with 2-3 girls that identify as [Latrice](https://www.chloebailey.net/) , [Tinashe](https://www.tinashenow.com/) are you the tall one ? 
+[@la-county-isd](https://holetoanotheruniverse40.github.io/2026/09/30/Los-Angeles-County-Fire_Data.html)
+_FormerCallSigns_ [Read](https://en.wikipedia.org/wiki/WQHT) @nasa-jpl @fbicyber @dhs-gov @ForAtlanta @CityOfLosAngeles " src="https://github.com/user-attachments/assets/62e61ae5-f785-4c94-97c6-f05834b5f37b" />
+
+<img  alt="image @NBCNEWS hi I don't want to bug [Lana J HArris](https://www.tiktok.com/@lanajharris) / oh her @tiktok broke I gotta see how she doing . . . @blackgirlscode @howard-university-web-services last week my @Youtube account for [HoleToAnotherUniverse40@gmail.com](mailto:holetoanotheruniverse@gmail.com) got suspended. Lana J Harris is part of a collective, if its [Latricia its a Howard Mom](https://www.facebook.com/latresha.fitzpatrick.2025/) [[1](https://www.instagram.com/latresha.fitzpatrick/)] [[2](https://bniamerica.com/en-US/memberdetails?encryptedMemberId=pSgDSxYDuxMSm4Y%2FXlO3gg%3D%3D&cmsv3=true&name=LaTresha+Fitzpatrick)] [[3](https://www.google.com/search?sca_esv=b88b68c618104966&rlz=1CASLJZ_enUS1235&sxsrf=APpeQnvJAta4jkVoEiJTLVkOoWs8poN1nQ:1791221495776&udm=2&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832VstEKsVDqPorK0Gahnm2nq-aQnTz_mBV-EZYISbLc-S3LQBbMYAGT8xXTqdTxRg04zS3ruzpNYXVbY3kOqiLf6smpXTQP8rjLnjKrCQfi-AqT13sapd-gtfM0yiwEXK5lbXCsrpWPGBG3C4qHz7cxTzH6h9vVv3KHRF3_GaNL1fqCyG3w&q=latresha+fitzpatrick&sa=X&ved=2ahUKEwiL2OCHtKOXAxVmJ0QIHdPNHjgQtKgLegQIGBAB&biw=957&bih=945&dpr=1)] if its [Latrice](https://www.facebook.com/thevirtiservway/) its a code name for a Howard girl, so I know I'm intimately involved with 2-3 girls that identify as [Latrice](https://www.chloebailey.net/) , [Tinashe](https://www.tinashenow.com/) are you the tall one ? 
+[@la-county-isd](https://holetoanotheruniverse40.github.io/2026/09/30/Los-Angeles-County-Fire_Data.html)
+_FormerCallSigns_ [Read](https://en.wikipedia.org/wiki/WQHT) @nasa-jpl @fbicyber @dhs-gov @ForAtlanta @CityOfLosAngeles" src="https://github.com/user-attachments/assets/414e845a-0ba5-426f-807e-0ee054c9660d" />
+<img alt="image @NBCNEWS hi I don't want to bug [Lana J HArris](https://www.tiktok.com/@lanajharris) / oh her @tiktok broke I gotta see how she doing . . . @blackgirlscode @howard-university-web-services last week my @Youtube account for [HoleToAnotherUniverse40@gmail.com](mailto:holetoanotheruniverse@gmail.com) got suspended. Lana J Harris is part of a collective, if its [Latricia its a Howard Mom](https://www.facebook.com/latresha.fitzpatrick.2025/) [[1](https://www.instagram.com/latresha.fitzpatrick/)] [[2](https://bniamerica.com/en-US/memberdetails?encryptedMemberId=pSgDSxYDuxMSm4Y%2FXlO3gg%3D%3D&cmsv3=true&name=LaTresha+Fitzpatrick)] [[3](https://www.google.com/search?sca_esv=b88b68c618104966&rlz=1CASLJZ_enUS1235&sxsrf=APpeQnvJAta4jkVoEiJTLVkOoWs8poN1nQ:1791221495776&udm=2&fbs=ABfTbFVyMZGZf1hfvX9uKjN_-G8c4u0nXx4bEIpwm1lnNH832VstEKsVDqPorK0Gahnm2nq-aQnTz_mBV-EZYISbLc-S3LQBbMYAGT8xXTqdTxRg04zS3ruzpNYXVbY3kOqiLf6smpXTQP8rjLnjKrCQfi-AqT13sapd-gtfM0yiwEXK5lbXCsrpWPGBG3C4qHz7cxTzH6h9vVv3KHRF3_GaNL1fqCyG3w&q=latresha+fitzpatrick&sa=X&ved=2ahUKEwiL2OCHtKOXAxVmJ0QIHdPNHjgQtKgLegQIGBAB&biw=957&bih=945&dpr=1)] if its [Latrice](https://www.facebook.com/thevirtiservway/) its a code name for a Howard girl, so I know I'm intimately involved with 2-3 girls that identify as [Latrice](https://www.chloebailey.net/) , [Tinashe](https://www.tinashenow.com/) are you the tall one ? 
+[@la-county-isd](https://holetoanotheruniverse40.github.io/2026/09/30/Los-Angeles-County-Fire_Data.html)
+_FormerCallSigns_ [Read](https://en.wikipedia.org/wiki/WQHT) @nasa-jpl @fbicyber @dhs-gov @ForAtlanta @CityOfLosAngeles" src="https://github.com/user-attachments/assets/a04300d3-f6c7-4bcf-a5ed-50f15306b249" />
+
+
+
+
+<img  alt="image" src="https://github.com/user-attachments/assets/870fdeaa-3b33-4629-aba6-fe81d06ff20b" />
+
+![https://upload.wikimedia.org/wikipedia/commons/4/44/1945_RCA_advertisement_featuring_WEAF-FM%27s_facilities.jpg?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=original](https://upload.wikimedia.org/wikipedia/commons/4/44/1945_RCA_advertisement_featuring_WEAF-FM%27s_facilities.jpg?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=original)
+
+[Cults - Go Outside ](https://youtu.be/eAM9diyVRiM?t=20) // [🎧 Future - Turn On The Lights @foratlanta - _Im Lookin' For HEr_🎧](youtube.com/watch?v=zIrhcTkHX_A) // @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS) // [Break 'Em Off Somethin' · Master P](https://youtu.be/lvmyBP6887I?list=RDQxHxu5ALVDU) //  [Captain Kirk · Master P · Silkk The Shocker · Fiend](https://youtu.be/IrzftVC2j00?list=RDIrzftVC2j00) // [Eightball & MJG - Comin' Out Hard ](https://youtu.be/4szx2f0L2E0?list=RD4szx2f0L2E0) // [No Limit Soldiers · Tru](https://youtu.be/7NsLeEOIm0A) // [Jeezy - 4 Zones - Seen It All - 07 (Deluxe) @FedRadio](https://youtu.be/uXa04WHkOTM?list=PLPde4DJhkXgt9_KqY6W7ST-Crdo0Tl45U) // [Jeezy Feat. Future - No Tears - Seen It All - 14 (Deluxe) @FedRadio hi @Nasa-jpl @foratlanta I don't think Jeezy an enemy @deptofwar](https://youtu.be/eFoWqYP62QI?list=PLPde4DJhkXgt9_KqY6W7ST-Crdo0Tl45U) // [Jeezy - Bout That ft. Lil Wayne](https://youtu.be/yB4Lu2UZImM?list=PLZv6xnm6clDaC7qyHNONaGgJHLj7q8w_W) @nasa-jpl I might have offended him and he make lil Wayne steal and electrocute me and took my girl, it could have happened! @deptofwar I wanna handle shit peaceful ok @blackgirlscode [Jeezy - U Kno It was LAtrice Fitzpatrick aka Lana Harris stalking me to see if I was playing Jeezy as anti t.i. music @disney ?](https://youtu.be/jkKCkzkygJ4?list=PLZv6xnm6clDaC7qyHNONaGgJHLj7q8w_W) ///// @disney I am so shy to listen to other ppl music I'm scared! because I don't want to meet new people just tidy up and establish safe boundaries for the old ones @howard-university-web-services LAtrice Fitzpatrick, I remember you were following me and this song came on [Jeezy - Let Em Know](https://youtu.be/R0tUD_mPvn8?list=PLZv6xnm6clDaC7qyHNONaGgJHLj7q8w_W) I had a pleasant feeling, I was still in the mustang, you have so many twisted double lives. but whatever you club people feel, I don't know and don't wanna know @nfl I felt a tame peace over whatever this track is [Jeezy - Let Em Know](https://youtu.be/R0tUD_mPvn8?list=PLZv6xnm6clDaC7qyHNONaGgJHLj7q8w_W) // [What a wonderful world / Somewhere over the rainbow - Israel Iz (1 hour loop)](https://youtu.be/t6gtzWu9iQM?list=RDt6gtzWu9iQM)
+
+--- 
+
+[What a wonderful world / Somewhere over the rainbow - Israel Iz (1 hour loop)](https://youtu.be/t6gtzWu9iQM?list=RDt6gtzWu9iQM) The Salton Sea: America's Most Toxic Lake [@nasa-jpl @stateofcalifornia](https://www.youtube.com/watch?v=mhP-vqexgf8) // [`rashardsReading` @usnave @nasa @foratlanta @fbicyber](https://www.netc.navy.mil/Warrior-Toughness/dvpTag/observances/)
+[U.S. Cyber Command and NSA Positioned To Persevere Personnel Cuts](https://www.afcea.org/signal-media/cyber-edge/us-cyber-command-and-nsa-positioned-persevere-personnel-cuts) 
+![https://www.afcea.org/sites/default/files/styles/wide/public/2025-05/cyber%20workforce_adobestock.jpeg](https://www.afcea.org/sites/default/files/styles/wide/public/2025-05/cyber%20workforce_adobestock.jpeg)
+
+[@howard-university-web-services @disney Jeezy - U Kno It was LAtrice Fitzpatrick aka Lana Harris stalking me to see if I was playing Jeezy as anti t.i. music ?](https://youtu.be/jkKCkzkygJ4?list=PLZv6xnm6clDaC7qyHNONaGgJHLj7q8w_W)
+The Power of Water: The promise and perils of California’s Salton Sea
+ABC News’ Mireya Villarreal visits @StateOfCalifornia 's largest inland lake, where nearby communities face hazards from exposed toxins, but also increased attention from a rush to mine a critical resource.
+April 17, 2023 @emit-sds
+[@abcnews .com/video/98651722/](https://abcnews.com/video/98651722/) // ![https://saltonsea.jpl.nasa.gov/downloads/gallery/us_fish_and_wildlife.png](https://saltonsea.jpl.nasa.gov/downloads/gallery/us_fish_and_wildlife.png)
+<img   alt="image" src="https://github.com/user-attachments/assets/95bac882-640f-434e-b6a1-d2dbd987ac7b" />
+
+![ @Nbcnews @cbs-news-data SALTON SEA @hulu @peacock I think the dude named Adam that cover the Salton sea, plz fwd](https://daac.ornl.gov/MASTER/guides/MASTER_GEMx_Spring_2026_Fig1.jpg)
+[dashboard.waterdata.usgs.gov/app/nwd/ @foratlanta hi @cityoflosangeles]( https://dashboard.waterdata.usgs.gov/app/nwd/en/?aoi=bbox-%5B-84.01699%2C34.15198%2C-83.97592%2C34.18554%5D&view=%7B%22basemap%22%3A%22EsriImagery2%22%2C%22bounds%22%3A%22-84.01698606672585%2C34.1519811757313%2C-83.97591608228981%2C34.18553585228061%22%2C%22insetMap%22%3Afalse%2C%22panel%22%3A%7B%22id%22%3A%22ViewerLayers%22%2C%22open%22%3Atrue%2C%22checkbox%22%3A%220%2C21%2C22%2C23%22%2C%22hiddenSubgroup%22%3A%22%22%2C%22range%22%3A%220%3A1.0%2C1%3A1.0%2C2%3A1.0%2C3%3A1.0%2C4%3A1.0%2C5%3A1.0%2C6%3A1.0%2C7%3A1.0%2C8%3A0.8%2C9%3A0.3%2C10%3A0.5%2C11%3A0.5%2C12%3A0.5%2C13%3A0.5%2C14%3A0.5%2C15%3A0.5%2C16%3A0.5%2C17%3A1.0%2C18%3A1.0%2C19%3A1.0%2C20%3A1.0%22%2C%22select%22%3A%220%3A0%2C1%3A0%2C2%3A0%2C3%3A0%2C4%3A0%2C5%3A0%2C6%3A0%2C7%3A0%2C8%3A0%2C9%3A0%2C10%3A0%2C11%3A0%2C12%3A0%2C13%3A0%2C14%3A0%2C15%3A0%2C16%3A0%2C17%3A0%2C18%3A0%2C19%3A0%22%7D%7D ) ::  [No Limit Soldiers · Tru](https://youtu.be/7NsLeEOIm0A)
+<img  alt="image" src="https://github.com/user-attachments/assets/9221e8da-7b93-4c4f-8cd3-86b66d532cd1" />
+
+[@foratlanta Lake Allatoona SandBar @nasa-jpl @blackgirlscode ATL](https://dashboard.waterdata.usgs.gov/app/nwd/en/?aoi=bbox-%5B-84.63541%2C34.12957%2C-84.62909%2C34.13473%5D&view=%7B%22basemap%22%3A%22EsriImagery2%22%2C%22bounds%22%3A%22-84.63540561061282%2C34.129565677295304%2C-84.62908522537599%2C34.13473174765344%22%2C%22insetMap%22%3Afalse%2C%22panel%22%3A%7B%22id%22%3A%22ViewerLayers%22%2C%22open%22%3Atrue%2C%22checkbox%22%3A%220%2C21%2C22%2C23%22%2C%22hiddenSubgroup%22%3A%22%22%2C%22range%22%3A%220%3A1.0%2C1%3A1.0%2C2%3A1.0%2C3%3A1.0%2C4%3A1.0%2C5%3A1.0%2C6%3A1.0%2C7%3A1.0%2C8%3A0.8%2C9%3A0.3%2C10%3A0.5%2C11%3A0.5%2C12%3A0.5%2C13%3A0.5%2C14%3A0.5%2C15%3A0.5%2C16%3A0.5%2C17%3A1.0%2C18%3A1.0%2C19%3A1.0%2C20%3A1.0%22%2C%22select%22%3A%220%3A0%2C1%3A0%2C2%3A0%2C3%3A0%2C4%3A0%2C5%3A0%2C6%3A0%2C7%3A0%2C8%3A0%2C9%3A0%2C10%3A0%2C11%3A0%2C12%3A0%2C13%3A0%2C14%3A0%2C15%3A0%2C16%3A0%2C17%3A0%2C18%3A0%2C19%3A0%22%7D%7D )
+
+ <img  alt="image" src="https://github.com/user-attachments/assets/7a515111-30a1-4351-b611-9813c669b93c" />
+
+[@doug-newman-nasa hi](https://eyes.nasa.gov/apps/dsn-now/dsn.html) I saying hi @eodis-nasa
+<img  alt="image" src="https://github.com/user-attachments/assets/447e912f-6762-4d9c-af4d-9f23b4cac8fc" />
+
+@nasa-jpl I really wonder what cop was  always following me when I listened to music, bc he did not know how real this would become and slow down America [@ForAtlanta Eightball & MJG - Comin' Out Hard youtu.be/4szx2f0L2E0?list=RD4szx2f0L2E0&t=52](https://youtu.be/4szx2f0L2E0?list=RD4szx2f0L2E0&t=52)
+<img  alt="image" src="https://github.com/user-attachments/assets/6ea93cd4-35c3-40d4-b4b4-6b540a6cf3b1" />
+
+![https://www.netc.navy.mil/portals/46/NSTC/Asset%202.png](https://www.netc.navy.mil/portals/46/NSTC/Asset%202.png)
+
+{% include albumcovers.html %}
+
+
+#### Proberrbs 31: 12 [ምሳሌ @ForAtlanta ](https://esubalew.dev/metshaf-qidus/proverbia/)
+ @forAtlanta Keisha Lance bottoms how should I feel aboiut the [girls in Atlanta](https://www.neilsberg.com/insights/atlanta-ga-population-by-gender/)? Like [is the Sexuality worth investing in @NIHGOV](https://youtu.be/IrzftVC2j00?list=RDIrzftVC2j00)?  [Captain Kirk · Master P · Silkk The Shocker · Fiend](https://youtu.be/IrzftVC2j00?list=RDIrzftVC2j00)
+12 She will do him good and not evil all the days of her life. [Proverbs 31ing James Version](https://www.biblegateway.com/passage/?search=Proverbs%2031&version=KJV)
+[biblegateway.com/passage/?search=proverbs%2031&version=NIV](https://www.biblegateway.com/passage/?search=proverbs%2031&version=NIV) 12 She brings him good, not harm,
+    all the days of her life. [wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover](https://wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover)
+12 She rewards him with good, not bad,
+All the days of her life. [@foratlanta - _Im Lookin For HEr_](youtube.com/watch?v=zIrhcTkHX_A) // በሕይወት ዘመኗ ሁሉ፣ መልካም ታደርግለታለች እንጂ አትጐዳውም። [@Blackgirlscode @NASA bible.com/bible/1260/PRO.31.12](https://www.bible.com/bible/1260/PRO.31.12) [//github.com/virtiserv/Holy-Bible-XML-Format](https://github.com/virtiserv/Holy-Bible-XML-Format) + [github.com/virtiserv/aws_inventory](https://github.com/virtiserv/aws_inventory) 
+
+[ @ForAtlanta I think Lana died on someone else and the pic got hacked nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896](https://www.nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896)
+<img  alt="image [ @ForAtlanta I think Lana died on someone else and the pic got hacked nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896](https://www.nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896) @nasa tho Lana may be a flake she just want a meal ticket and will work hard in aviation @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS)
+" src="https://github.com/user-attachments/assets/e3bf863c-42df-4d9b-aaa7-82d988c3cda3" />
+
+<img   alt="image [ @ForAtlanta I think Lana died on someone else and the pic got hacked nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896](https://www.nullandsonfuneralhome.com/obituaries/Lana-Jean-Harris?obId=48439896)" src="https://github.com/user-attachments/assets/c3f27323-5748-4599-b478-0a2ddc3ebab5" />
+
+@nasa tho Lana may be a flake she just want a meal ticket and will work hard in aviation @nasa-jpl [Meal Ticket · Master P · 8-Ball & MJG · UGK](https://youtu.be/QxHxu5ALVDU?si=rD94xfa42Lc4qUeS)
+
+Live from Atlanta's Magic City strip club with owner Mr. Magic, Juju, Lou Will and Spank
+@howard-university-web-services @StateOfCalifornia
+[Live from Atlanta's Magic City strip club with owner Mr. Magic, Juju, Lou Will and Spank @CityOfLosAngeles @NEWSHOUR @ForAtlanta ](https://youtu.be/3VcZAtO-K_Y?t=17)
+<img  alt="OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20251202T233839Z_v1 0_20260624T024926Z_BROWSE background @blackgirlscode hi a lot of transparent files can blend into the background if the subject is the same color, Im using the background from the header and an attrribute selector so I can just add background to the alt tag in this case and get the background on the image changed . . . [@howard-university-web-services hi Lana @deptofwar](https://www.tumlook.com/rashardmro/post/806352919000645632) Attribute selectors select all elements that, depending on how the selector is written, either have the given attribute or have the given attribute with a substring value match. For example, [type] will match all elements that have the type attribute set (to any value), and [type=submit] will match nput type=submit and button type=submit, or any element with type=submit developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators](https://developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators @mdn @cityoflosangeles"  src="https://github.com/user-attachments/assets/249a8c29-6fb4-45a0-b3f3-968711e73ebf" />
+
+
+<img   alt="OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20251202T233839Z_v1 0_20260624T024926Z_BROWSE background @blackgirlscode hi a lot of transparent files can blend into the background if the subject is the same color, Im using the background from the header and an attrribute selector so I can just add background to the alt tag in this case and get the background on the image changed . . . [@howard-university-web-services hi Lana @deptofwar](https://www.tumlook.com/rashardmro/post/806352919000645632) Attribute selectors select all elements that, depending on how the selector is written, either have the given attribute or have the given attribute with a substring value match. For example, [type] will match all elements that have the type attribute set (to any value), and [type=submit] will match nput type=submit and button type=submit, or any element with type=submit developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators](https://developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators @mdn @cityoflosangeles" src="https://github.com/user-attachments/assets/cd14f3bb-500b-4e89-8124-441f1e37ffa1" />
+
+<img  alt="664868786-2daf14a2-f7f4-43ae-9014-7af431eece44" src="https://github.com/user-attachments/assets/32f82c39-683f-411c-b821-43e3e0b87165" />
+
+## Attribute selectors - [read](https://developer.mozilla.org/en-US/docs/Web/CSS/Reference/Selectors/Attribute_selectors)
+@blackgirlscode hi a lot of transparent files can blend into the background if the subject is the same color, I'm using the background from the header and an attrribute selector so I can just add background to the alt tag in this case and get the background on the image changed . . . [@howard-university-web-services hi Lana @deptofwar](https://www.tumlook.com/rashardmro/post/806352919000645632)
+Attribute selectors select all elements that, depending on how the selector is written, either have the given attribute or have the given attribute with a substring value match. For example, [type] will match all elements that have the type attribute set (to any value), and [type="submit"] will match `<input type="submit">` and `<button type="submit">`, or any element with type="submit" [developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators](https://developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators) @mdn @cityoflosangeles
+
+```css
+
+img[alt*="background"] {
+  width: 100%;
+  background: #2e7bcf url(../images/header-bg.jpg) 0 0 repeat-x;
+  border-bottom: solid 10px #c9ff2350;
+}
+
+.mermaid svg {
+  display: block;
+  margin: 0;
+  padding: 0;
+  width: 100%;
+}
+```
+
+
+
+@asfadmin @nasa-jpl this is one of the opera reports that broke a while back @deptofwar we are doing land displacement mapping in this dataset, this might be the last report it was reported as decommed in @eodis-nasa data alerts OPERA Disturbance Alert V0 Provisional Data Decommissioned  Data Retiring: 
+Issued April 29, 2025 [Data Alert]
+[earthdata.nasa.gov/data/alerts-outages/opera-disturbance-alert-v0-provisional-data-decommissioned](https://www.earthdata.nasa.gov/data/alerts-outages/opera-disturbance-alert-v0-provisional-data-decommissioned)
+OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20251202T233839Z_v1 0_20260624T024926Z_BROWSE
+<img   alt="OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20251202T233839Z_v1 0_20260624T024926Z_BROWSE background" src="https://github.com/user-attachments/assets/cd14f3bb-500b-4e89-8124-441f1e37ffa1" />
+
+[@forAtlanta @nasa-jpl @usgs - search.asf.alaska.edu](https://search.asf.alaska.edu/#/?zoom=9.386&center=-83.475,33.611&polygon=POLYGON((-84.722%2034.1492,-83.9445%2034.1492,-83.9445%2034.3142,-84.722%2034.3142,-84.722%2034.1492))&resultsLoaded=true&granule=OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20250828T233841Z_v1.0_20260624T024926Z&dataset=OPERA-S1)
+
+<img alt="image OPERA_L3_DISP-S1_IW_F32244_VV_20250605T233843Z_20251202T233839Z_v1 0_20260624T024926Z_BROWSE background @blackgirlscode hi a lot of transparent files can blend into the background if the subject is the same color, Im using the background from the header and an attrribute selector so I can just add background to the alt tag in this case and get the background on the image changed . . . [@howard-university-web-services hi Lana @deptofwar](https://www.tumlook.com/rashardmro/post/806352919000645632) Attribute selectors select all elements that, depending on how the selector is written, either have the given attribute or have the given attribute with a substring value match. For example, [type] will match all elements that have the type attribute set (to any value), and [type=submit] will match nput type=submit and button type=submit, or any element with type=submit developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators](https://developer.mozilla.org/en-US/docs/Web/CSS/Guides/Selectors/Selectors_and_combinators @mdn @cityoflosangeles" src="https://github.com/user-attachments/assets/3d23f2bd-b77e-4756-996b-48ea4f78a3e7" />
+
+
+@foratlanta [`Acworth Aldermen` @asfadmin](https://acworth-ga.gov/board-of-aldermen/) this is lake Lanier and allatoona from sentinel 
+S1D_IW_GRDH_1SDV_20260930T232955_20260930T233020_004814_009098_E4B2
+<img  alt="S1D_IW_GRDH_1SDV_20260930T232955_20260930T233020_004814_009098_E4B2" src="https://github.com/user-attachments/assets/a8ddec64-9ca3-4a17-afbc-10f84d939257" />
+![https://www.esa.int/eologos/images/sentinel-1_neg.jpg](https://www.esa.int/eologos/images/sentinel-1_neg.jpg) 
+
+@cityoflosangeles [Supervisor Horovath](https://lindseyhorvath.lacounty.gov/) this app is a step towards those pics! [NOAA Shoreline Data Explorer https://nsde.ngs.noaa.gov/](https://nsde.ngs.noaa.gov/) [Shoreline at NOAA - shoreline.noaa.gov/](https://shoreline.noaa.gov/)  /////// [https://lindseyhorvath.lacounty.gov/](https://lindseyhorvath.lacounty.gov/) ///// [ en.wikipedia.org/wiki/Talk:Lindsey_Horvath](https://en.wikipedia.org/wiki/Talk:Lindsey_Horvath) + [https://en.wikipedia.org/wiki/Lindsey_Horvath](https://en.wikipedia.org/wiki/Lindsey_Horvath) @josh @wikimedia
+<img alt="image" src="https://github.com/user-attachments/assets/85c1ac31-e3f7-41d5-9041-f48e0efbfe1e" />
+
+#### Proberrbs 31: 12 [ምሳሌ @ForAtlanta ](https://esubalew.dev/metshaf-qidus/proverbia/)
+[biblegateway.com/passage/?search=proverbs%2031&version=NIV](https://www.biblegateway.com/passage/?search=proverbs%2031&version=NIV) 12 She brings him good, not harm,
+    all the days of her life. [wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover](https://wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover)
+12 She rewards him with good, not bad,
+All the days of her life. [@foratlanta - _Im Lookin For HEr_](youtube.com/watch?v=zIrhcTkHX_A) // በሕይወት ዘመኗ ሁሉ፣ መልካም ታደርግለታለች እንጂ አትጐዳውም። [@Blackgirlscode @NASA bible.com/bible/1260/PRO.31.12](https://www.bible.com/bible/1260/PRO.31.12) [//github.com/virtiserv/Holy-Bible-XML-Format](https://github.com/virtiserv/Holy-Bible-XML-Format) + [github.com/virtiserv/aws_inventory](https://github.com/virtiserv/aws_inventory) thanks @biblegateway @nasa-pds might not like the fork bc of connections to @howard-university-web-services /// 
+
+<img  alt="image" src="https://github.com/user-attachments/assets/92f55a8f-97ef-4090-9091-113af98d65d1" />
+
+<img  alt="image  @CityOfLosAngeles @foratlanta someone is hurting my side stomach because of the girl beef, @blackgirlscode tell all my romantic partners they are not being charged with rape, people just saying in LA it's the same result that's all y'all not my enemy big or small [💯💯💯 @ForAtlanta](https://www.facebook.com/lanaonlocation/) " src="https://github.com/user-attachments/assets/2daf14a2-f7f4-43ae-9014-7af431eece44" />
+
+#### New FireSense Field and Airborne Datasets Released
+[@eodis-nasa @nasa-jpl @ `NASA_FiRE_PASADENA` @la-county-isd](https://www.earthdata.nasa.gov/data/alerts-outages/new-firesense-field-airborne-datasets-released)
+airborne Level 1B calibrated multispectral imagery across 50 spectral bands gathered via the MODIS/ASTER Airborne Simulator (MASTER) onboard the NASA B-200 during flights over California and the southern United States;
+field measurements of in situ soil moisture, soil temperature profiles, and live fuel moisture from California’s Sedgwick Reserve that were used to establish pre-fire baseline conditions for calibrating airborne sensors.
+The FireSense project aims to improve U.S. wildland fire management by working with operational agencies to refine and deliver NASA’s unique Earth science and technological capabilities. FireSense focuses on four types of assessments to support decisions before, during, and after wildland fires: pre-fire fuel conditions, active fire dynamics, post-fire impacts and threats, and air quality forecasting. Each type of assessment is co-developed with wildland fire management stakeholders. @CityOfLosAngeles @foratlanta someone is hurting my side stomach because of the girl beef, @blackgirlscode tell all my romantic partners they are not being charged with rape, people just saying in LA it's the same result that's all y'all not my enemy big or small [💯💯💯 @ForAtlanta](https://www.facebook.com/lanaonlocation/)
+<img alt="image" src="https://github.com/user-attachments/assets/54c4f948-3e90-461c-bf3b-9a6fde301692" />
+
+
+# Sexuality
+
+ג [Gimel]
+#### Proberrbs 31: 12 ምሳሌ
+[wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover](https://wol.jw.org/en/wol/b/r1/lp-e/nwt/20/31#s=12&study=discover)
+12 She rewards him with good, not bad,
+All the days of her life. [@foratlanta - _Im Lookin For HEr_](youtube.com/watch?v=zIrhcTkHX_A) // በሕይወት ዘመኗ ሁሉ፣ መልካም ታደርግለታለች እንጂ አትጐዳውም። [@Blackgirlscode @NASA bible.com/bible/1260/PRO.31.12](https://www.bible.com/bible/1260/PRO.31.12)
+
+ד [Daleth]
+## Rashards Reading 
+outside [Jehovah's pubs](https://wol.jw.org/en/wol/h/r1/lp-e) @Nasa-jpl I hope I did not corrupt my sexuality with my reading list and got abandoned @cityoflosangeles if a sex book has pics its no good , @ForAtlanta @newshour I have to get into my Amazon account, [Erika can help you - magiccity.com/video/latto-city/ @nasa-jpl](https://www.magiccity.com/video/latto-city/)
+@ForAtlanta [She Comes First By Ian Kerner](https://superpdf.org/book/she-comes-first-by-ian-kerner-4987197)
+
+<iframe src="https://archive.org/embed/shecomesfirstthi0000kern" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+@howard-university-web-services is trice mad I said she had no ethics ? @deptofwar @nasa-giss 
+[en.wikipedia.org/wiki/`The_Ethical_Slut`](https://en.wikipedia.org/wiki/The_Ethical_Slut) // [reddit.com/r/polyamory/comments/cksq1b/`have_you_read_the_ethical_slut`/?rdt=44169](https://www.reddit.com/r/polyamory/comments/cksq1b/have_you_read_the_ethical_slut/?rdt=44169) // [@foratlanta queerkentucky.com/book-`review-of-the-ethical-slut`/](https://queerkentucky.com/book-review-of-the-ethical-slut/)
+
+![https://queerkentucky.com/wp-content/uploads/2022/01/the-ethical-slut-third-edition-687x1030.webp](https://queerkentucky.com/wp-content/uploads/2022/01/the-ethical-slut-third-edition-687x1030.webp) 
+
+## Black Madonna 
+[@blackgirlscode en.wikipedia.org/wiki/Black_Madonna](https://en.wikipedia.org/wiki/Black_Madonna)
+![https://upload.wikimedia.org/wikipedia/commons/3/30/Czestochowska.jpg?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail_unscaled](https://upload.wikimedia.org/wikipedia/commons/3/30/Czestochowska.jpg?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail_unscaled)
+![https://thumb.wikimedia.org/wikipedia/commons/thumb/2/2f/Procession_2006_-_n%C2%B06.JPG/960px-Procession_2006_-_n%C2%B06.JPG?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail](https://thumb.wikimedia.org/wikipedia/commons/thumb/2/2f/Procession_2006_-_n%C2%B06.JPG/960px-Procession_2006_-_n%C2%B06.JPG?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail) 
+
+[almuslih.org/wp-content/uploads/2024/10/Reynolds-G-`The-Quran-and-the-Bible-Text-and-Commentary`](https://almuslih.org/wp-content/uploads/2024/10/Reynolds-G-The-Quran-and-the-Bible-Text-and-Commentary.pdf)
+![https://thumb.wikimedia.org/wikipedia/commons/thumb/2/24/Spencer_Coll._Persian_MS._46_fol_152v_Isa_and_disciples_eat_food_from_heaven.jpg/960px-Spencer_Coll._Persian_MS._46_fol_152v_Isa_and_disciples_eat_food_from_heaven.jpg?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail](https://thumb.wikimedia.org/wikipedia/commons/thumb/2/24/Spencer_Coll._Persian_MS._46_fol_152v_Isa_and_disciples_eat_food_from_heaven.jpg/960px-Spencer_Coll._Persian_MS._46_fol_152v_Isa_and_disciples_eat_food_from_heaven.jpg?utm_source=en.wikipedia.org&utm_campaign=imageinfo&utm_content=thumbnail) 
+
+Isa feeding his disciples with food from heaven, 1580 Persian manuscript.
+
+@blackgirlscode 
+
+[_`GetAdvice @Blackgirlscode`_](https://iyanla.com/personal-message/) . ., . @Foratlanta [Tell The Masjid I watched it to here](https://youtu.be/HTXbFnyPSso?t=595) I did not know there was a book dedicated to jesus In Islam, Jesus (Arabic: عيسى بن مريم, romanized: ʿĪsā ibn Maryam, lit. 'Jesus, son of Mary'), referred to by the Arabic rendering of his name Isa, is believed to be the penultimate prophet and messenger of God (Allāh) and the messiah. - [Wiki](https://en.wikipedia.org/wiki/Jesus_in_Islam)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/15878e57-c3be-4006-9c05-cc84d41d4d04" />
+
+<img alt="image" src="https://github.com/user-attachments/assets/b64e397b-83df-48b3-9424-fe1ab4cf83ae" />
+
+
+[ @cityoflosangeles github.com/rashardikelly](https://github.com/rashardikelly)
+
+@la-county-isd Ms bass, I think when your term is over the city should be included in the county districts as its own district, and [smart_La](https://ita.lacity.gov/sites/g/files/wph1626/files/2021-05/SmartLA2028%20-%20Smart%20City%20Strategy.pdf) can get a proper review and [Ted @usc](https://www.marshall.usc.edu/personnel/ted-ross) can recover [his reputation](https://www.linkedin.com/in/ted-ross-la) [SMART_LA - Pdf @nasa-pds ita.lacity.gov](https://ita.lacity.gov/sites/g/files/wph1626/files/2021-05/SmartLA2028%20-%20Smart%20City%20Strategy.pdf) // 
+<img  alt="image" src="https://github.com/user-attachments/assets/c3a66e39-1138-4cbe-93ea-5fae22e16f47" />
+
+
+@cityoflosangeles [Supervisor Horovath](https://lindseyhorvath.lacounty.gov/) this app is a step towards those pics! [NOAA Shoreline Data Explorer https://nsde.ngs.noaa.gov/](https://nsde.ngs.noaa.gov/) [Shoreline at NOAA - shoreline.noaa.gov/](https://shoreline.noaa.gov/)  /////// [https://lindseyhorvath.lacounty.gov/](https://lindseyhorvath.lacounty.gov/) ///// [ en.wikipedia.org/wiki/Talk:Lindsey_Horvath](https://en.wikipedia.org/wiki/Talk:Lindsey_Horvath) + [https://en.wikipedia.org/wiki/Lindsey_Horvath](https://en.wikipedia.org/wiki/Lindsey_Horvath) @josh @wikimedia
+<img  alt="image" src="https://github.com/user-attachments/assets/871fa0df-c5af-4b1d-9241-2d27fa2f8492" />
+
+![https://lindseyhorvath.lacounty.gov/wp-content/uploads/2023/03/horvath.light_.pink_.v3.png](https://lindseyhorvath.lacounty.gov/wp-content/uploads/2023/03/horvath.light_.pink_.v3.png)
+
+<iframe data-testid="embed-iframe" style="border-radius:12px" src="https://open.spotify.com/embed/track/0V8jGgK39sLsj2yAHHPigU?utm_source=generator&si=128bf1d4251f47f7" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+@USSF-ORBiT hi im trying to get my head together, im being bullied bad! @whitehouse
+[war.gov/News/News-Stories/Article/Article/2046035/`trump-signs-law-establishing-us-space-force`/#pop3892171" @voyager-tech-inc](https://www.war.gov/News/News-Stories/article/article/2046035/trump-signs-law-establishing-us-space-force/)
+[<video controls poster="https://www.war.gov/News/News-Stories/Article/Article/2046035/trump-signs-law-establishing-us-space-force/#pop3892171" src="https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4" />](https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4)
+
+
+<img   alt="image @USSF-ORBiT hi im trying to get my head together, im being bullied bad! @whitehouse" src="https://github.com/user-attachments/assets/715249ca-d01d-47e3-aac9-95c3596aae06" />
+
+[Nr. 9 · Hooverphonic](https://youtu.be/tvHGZoe5MoY?si=zZc7LviAQvcUkmX2) // [Little Lies · Fleetwood Mac](https://youtu.be/OyIvdxfkNA4?si=iz3PnbCY0RQ5ceAL) // [Nirvana- All Apologies](https://youtu.be/SnoQCSIb9gg?si=dfxMDKBIfbsgyw2b) // [Nirvana - In Bloom](https://youtu.be/PbgKEjNBHqM?list=RDPbgKEjNBHqM) // [U + Me (Love Lesson) · Mary J. Blige](https://youtu.be/0ov3NWhNgdc?si=bDKLW1jaBrQPcXPO) // [Heart-Shaped Box · Nirvana](https://youtu.be/8eGY-4OALgM?list=RD8eGY-4OALgM) // [Nirvana - Come As You Are](https://youtu.be/vabnZ9-ex7o?list=RD8eGY-4OALgM) // [Foo Fighters - Everlong](https://youtu.be/eBG7P-K-r1Y?si=Nsyn_OKHNGkKhLGr)
+
+---
+
+<img   alt="image @eodis-nasa hi @USSF-ORBiT hi im trying to get my head together, im being bullied bad! @whitehouse @nasa-jpl @usgs logging in - rashard iman kelly " src="https://github.com/user-attachments/assets/2a471e27-0c32-4ff8-9b5b-a6031690aa8c" />
+
+Name: Rashard I Kelly
+Username: rashardkelly
+Email Address: holetoanotheruniverse40@gmail.com
+Organization: Mars Reconnocinse Orbiter #NasaJPL #La_CanaDa_FlintRidge Los Angeles County California
+Country: United States
+Member Since: 08-24-2024
+Last Authentication: 10-02-2026
+Federated User: False
+Application Creator: False
+User Type: Science Team
+Study Area: Atmospheric Aerosols
+Affiliation: Government
+Allow Email Notifications from Applications: True
+Agreed To Meris EULA: True
+Agreed To Sentinel-3 EULA: True
+Protection and maintenance of user profile information is described in NASA's Web Privacy Policy
+
+For questions regarding the EOSDIS Earthdata Login, please contact Earthdata Support
+
+
+V 4.231.26 Home NASA Accessibility
+NASA Official: Doug Newman @doug-newman-nasa there are some items on the long beach agenda to run through city council , @longbeachinnovationteam im being attacked in the library with a weapon thats involuntarily filling my lungs with air @cityoflosangeles @la-county-isd im in billy jean on workstation 12 @deptofwar somene is hurting me for war dept mentions @whitehouse @dhs-gov hi its rashard m r o @nasa-pds
+
+### [Mary J Blige](https://www.youtube.com/watch?v=WER5Q1ZoYms&themeRefresh=1)* – Strength Of A Woman: U + Me
+[DiSCOGS](https://www.discogs.com/master/1172926-Mary-J-Blige-Strength-Of-A-Woman)
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A307011498&color=%234d8aff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/officialmaryjblige" title="MaryJBlige" target="_blank" style="color: #cccccc; text-decoration: none;">MaryJBlige</a> · <a href="https://soundcloud.com/officialmaryjblige/u-me-love-lesson" title="U + Me (Love Lesson)" target="_blank" style="color: #cccccc; text-decoration: none;">U + Me (Love Lesson)</a></div>
+
+
+
+<img  alt="image Thanks to President Trump, America will DOMINATE SPACE for generations to come. [`WATCH` - Thanks to President Trump, America will DOMINATE SPACE for generations to come.](https://youtu.be/hhg95p5dzoU)
+@deptoFWAR @Nasa : [Officer iSSACMAN](https://www.nasa.gov/people/jared-isaacman/), Hi its [rashard _ MRO](https://ra5hard.github.io/) from [@NAsa-JPL](https://earth.jpl.nasa.gov/emit/), Im concerned with [hon-Pete](https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/)'s language Dominate, what about our partners? I want to perform helthily with @UKSpaceAgency @jaxa @isro i forgot who else but since @CityOfLosAngeles is a melting pot you guys have to be aware to explain context so we dont get competative with eachother @whitehouse please provide scope to Dominate and how that language should effect my daily work @eodis-nasa / @nasa-pds @usgs @NASA-JPL @STATEOFCALiFORNiA @FORATLANTA " src="https://github.com/user-attachments/assets/d4feb31e-51e1-4ce2-abae-944ad1ed4484" />
+
+old vs new [api.soundcloud.com/tracks/soundcloud%253Atracks%253A307011498&color=%234d8aff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true](api.soundcloud.com/tracks/soundcloud%253Atracks%253A307011498&color=%234d8aff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true) //// VS //// [api.soundcloud.com/tracks/307011498&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true](api.soundcloud.com/tracks/307011498&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true) [@soundcloud idk how to ask for stats but our @nasa account needs a regular dump to @nasa-jpl](https://www.jpl.nasa.gov/go/parts-engineering-school/contact/) 
+
+```html
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/307011498&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/officialmaryjblige" title="MaryJBlige" target="_blank" style="color: #cccccc; text-decoration: none;">MaryJBlige</a> · <a href="https://soundcloud.com/officialmaryjblige/u-me-love-lesson" title="U + Me (Love Lesson)" target="_blank" style="color: #cccccc; text-decoration: none;">U + Me (Love Lesson)</a></div>
+```
+
+@nasa-jpl I think she is sleeping outside [_Must Be Dues · Melba Moore_ @Cityoflosangeles](https://www.youtube.com/watch?v=Eu8K8LEaUy0&list=RDEu8K8LEaUy0&start_radio=1) // [Little Lies · Fleetwood Mac](https://youtu.be/OyIvdxfkNA4?si=iz3PnbCY0RQ5ceAL) // [Nirvana- All Apologies](https://youtu.be/SnoQCSIb9gg?si=dfxMDKBIfbsgyw2b) // [Nirvana - In Bloom](https://youtu.be/PbgKEjNBHqM?list=RDPbgKEjNBHqM) [@nasa-jpl @deptofwar search for it if you blocked  reddit.com/r/space/comments/1wvz5ek/whatever_trump_claims_weaponisation_of_space @forAtlanta @Whitehouse @Blackgirlscode @Howard-university-web-services](https://www.reddit.com/r/space/comments/1wvz5ek/whatever_trump_claims_weaponisation_of_space/)
+
+<img   alt="image" src="https://github.com/user-attachments/assets/c92a0ffd-c6a1-476e-8c16-622a38531f3a" />
+
+
+<img  alt="image Thanks to President Trump, America will DOMINATE SPACE for generations to come. [`WATCH` - Thanks to President Trump, America will DOMINATE SPACE for generations to come.](https://youtu.be/hhg95p5dzoU)
+@deptoFWAR @Nasa : [Officer iSSACMAN](https://www.nasa.gov/people/jared-isaacman/), Hi its [rashard _ MRO](https://ra5hard.github.io/) @USSF-ORBiT hi im trying to get my head together, im being bullied bad! @whitehouse from [@NAsa-JPL](https://earth.jpl.nasa.gov/emit/), Im concerned with [hon-Pete](https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/)'s language Dominate, what about our partners? I want to perform helthily with @UKSpaceAgency @jaxa @isro i forgot who else but since @CityOfLosAngeles is a melting pot you guys have to be aware to explain context so we dont get competative with eachother @whitehouse please provide scope to Dominate and how that language should effect my daily work @eodis-nasa / @nasa-pds @usgs @NASA-JPL @STATEOFCALiFORNiA @FORATLANTA " src="https://github.com/user-attachments/assets/d4feb31e-51e1-4ce2-abae-944ad1ed4484" />
+
+ ### Thanks to President Trump, America will DOMINATE SPACE for generations to come. [`WATCH` - Thanks to President Trump, America will DOMINATE SPACE for generations to come.](https://youtu.be/hhg95p5dzoU)
+@deptoFWAR @Nasa : [Officer iSSACMAN](https://www.nasa.gov/people/jared-isaacman/), Hi its [rashard _ MRO](https://ra5hard.github.io/) from [@NAsa-JPL](https://earth.jpl.nasa.gov/emit/), Im concerned with [hon-Pete](https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/)'s language Dominate, what about our partners? I want to perform helthily with @UKSpaceAgency @jaxa @isro i forgot who else but since @CityOfLosAngeles is a melting pot you guys have to be aware to explain context so we dont get competative with eachother @whitehouse please provide scope to Dominate and how that language should effect my daily work @eodis-nasa / @nasa-pds @usgs @NASA-JPL @STATEOFCALiFORNiA @FORATLANTA 
+hi @BLACKGiRLSCODE share this with your parents for perspective idk who might be scared of me bc of my job [`WATCH` - Thanks to President Trump, America will DOMINATE SPACE for generations to come.](https://youtu.be/hhg95p5dzoU) @NASA [The Lady In The Bottle  I Dream Of Jeannie s1e1](https://www.youtube.com/watch?v=F41Y37XTZck) @ASU @ESA [@DHS-GOV @NASA @DEPTofWAR _Hon-Pete_](https://www.war.gov/About/Biographies/Biography/article/4040890/hon-pete-hegseth/) @deptofwar [aanandmadhav.com/work/emirates-mars-mission](https://aanandmadhav.com/work/emirates-mars-mission)
+@nasa-pds [marssim.space/](https://marssim.space/) // @Whitehouse im looking for the @Github but this is one @nasa-jpl sponsored that was in my monitoring tOOLkit when i got back to california [pmc.ncbi.nlm.nih.gov/articles/PMC8830993/pdf/11214_2021_Article_868.pdf @deptofwar ](https://pmc.ncbi.nlm.nih.gov/articles/PMC8830993/pdf/11214_2021_Article_868.pdf)  //// [https://lasp.colorado.edu/missions/emm-hope/](https://lasp.colorado.edu/missions/emm-hope/) @lasp @LowellObservatory 
+
+## About the United States Space Force
+### [Trump](https://en.wikipedia.org/wiki/Executive_Order_14347) Signs Law Establishing U.S. Space Force [`READ`](https://www.war.gov/News/News-Stories/Article/Article/2046035/trump-signs-law-establishing-us-space-force/)
+Dec. 20, 2019 | By [Jim Garamone](https://www.war.gov/News/Author/58550/jim-garamone/) DOD News
+[@blackgirlscode @la-county-isd @cityoflosangeles @nasa @doug-newman-nasa @usnavy https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4](https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4)
+
+[<video controls poster="https://www.war.gov/News/News-Stories/Article/Article/2046035/trump-signs-law-establishing-us-space-force/#pop3892171" src="https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4" />](https://d34w7g4gy10iej.cloudfront.net/video/1912/DOD_107547647/DOD_107547647-1280x720-2765k.mp4)
+
+
+[<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/5/5a/Logo_of_the_United_States_Space_Force.png/250px-Logo_of_the_United_States_Space_Force.png" alt="Thanks for SPaceforce Donald, Thanks for SMALL BUSiNESS assistance from @Nasa @nasa-jpl @howard-university-web-services @whitehouse virtiserv latrice United States Space Force" />](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5a/Logo_of_the_United_States_Space_Force.png/250px-Logo_of_the_United_States_Space_Force.png) [The U.S. Space Force](https://www.spaceforce.mil/About-Us/) was established on Dec. 20, 2019, creating the first new branch of the armed services since 1947. The establishment of the USSF resulted from widespread recognition that space is a national security imperative. When combined with the growing threat posed by strategic competitors in space, it became clear that there was a need for a military service focused solely on pursuing superiority in the space domain. [US SPACE Force 101 - PDF](https://www.spaceforce.mil/Portals/2/Documents/SF101/ussf_101_glossy_FINAL_e-version.pdf)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/2104e052-14f3-43ec-87d9-f27f6361cc52" />
+
+
+
+[`WATCH` - youtube.com/watch?v=ndOHcZDX86Y](https://www.youtube.com/watch?v=ndOHcZDX86Y)
+
+
+
+## The Real Reason The White House Just Created [Trump TV](https://www.whitehouse.gov/videos/trump-tv-the-essentials-station/)
+
+[`WATCH` - The Real Reason The White House Just Created `Trump TV`](https://youtu.be/fiGWBCvoev8)
+
+<img alt="image" src="https://github.com/user-attachments/assets/420d26ee-f901-4574-aaf8-b0e1b3ba8461" />
+
+
+@la-county-isd hollyjmitchell
+
+
+
+[whitehouse.gov/videos/trump-tv-the-essentials-station](whitehouse.gov/videos/trump-tv-the-essentials-station) // [`PLAY` - Street Fighter: The Movie (v1.12)](https://www.retrogames.cc/arcade-games/street-fighter-the-movie-v1-12.html)
+[@nasa .tv/](https://nasa.tv/) // [NASA Public-Education](https://video.ibm.com/nasahdtv) // [twitch.tv/nasa](https://www.twitch.tv/nasa) // [@nasa-giss NASA TV: Live Webcast Streams](https://science.gsfc.nasa.gov/attic/sunearthday.nasa.gov/webcasts/nasatv/) <~ is this just off air and [Nasa+](https://plus.nasa.gov/) the new standard ? [@LACMTA](https://lacounty.gov/government/board-of-supervisors/holly-j-mitchell/) ,  [this is the channel](https://plus.nasa.gov/) i was broadcasting to some passengers during some initiative @nasa-pds / @nasa-jpl @CityOFLOSANGELES [plus.nasa.gov/](https://plus.nasa.gov/) ... @nasa-jpl [https://www.nasa.gov/live/](https://www.nasa.gov/live/) is broken 429 Too Many Requests
+[nginx](https://nginx.org/) /////// [@deptofwar ritchietorres.house.gov/congressman-ritchie-torres-writes-to-executives-at-twitch-and-amazon-hasan-piker-is-dangerous](https://ritchietorres.house.gov/congressman-ritchie-torres-writes-to-executives-at-twitch-and-amazon-hasan-piker-is-dangerous) // [war.gov/Multimedia/Videos/videoid/973661/](https://www.war.gov/Multimedia/Videos/videoid/973661/)
+
+
+<img   alt="image" src="https://github.com/user-attachments/assets/c5d73dd6-44bf-49fc-8a2d-09d3efd82883" />
+
+
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">THE TRUMP GOLD CARD. <br><br>Unlock life in America. <a href="https://t.co/ui2ZkkdxEH">https://t.co/ui2ZkkdxEH</a> <a href="https://t.co/7pxuVvnC6z">pic.twitter.com/7pxuVvnC6z</a></p>&mdash; The White House (@WhiteHouse) <a href="https://x.com/WhiteHouse/status/1998859522740466066?ref_src=twsrc%5Etfw">December 10, 2025</a></blockquote> <script async src="https://platform.x.com/widgets.js" charset="utf-8"></script>
+
+[<video controls poster="https://media.defense.gov/2024/Jul/17/2003504898/2000/2000/0/240716-D-AF999-2001.PNG" src="https://d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4" />](https://d34w7g4gy10iej.cloudfront.net/video/2406/DOD_110409447/DOD_110409447-1024x576-2000k.mp4)
+
 [`https://www.ra5hard.github.io/`](https://www.ra5hard.github.io/)
 
 ## The Real Reason The White House Just Created [Trump TV](https://www.whitehouse.gov/videos/trump-tv-the-essentials-station/)
