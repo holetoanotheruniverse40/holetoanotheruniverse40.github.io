@@ -1,6 +1,10 @@
 # Rashard Kelly NasaJpl MRO JUNO iSS [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/)
 <img  alt="image" src="https://github.com/user-attachments/assets/cc433d0b-538e-4e20-8f00-c0a1cba45c40" />
 
+
+[pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:`insight_lander`:@ForAtlanta Melody MAddox @nasa-pds @deptofwar](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/rdr/idc/D000M0008_597250940CPG_F0000_0133M2.VIC)
+
+<img   alt="image" src="https://github.com/user-attachments/assets/1d4dc241-c213-4f86-819a-eeba2a4e3836" />
 <img alt="image" src="https://github.com/user-attachments/assets/04c90641-d5b5-4674-81da-bf6e9f46d8cc" />
 
 <img  alt="image @blackgirlscode https://www.instagram.com/p/B7WudbChNsG/ @nasa-jpl " src="https://github.com/user-attachments/assets/bb8be635-2db8-4a66-a69b-71c1fd176e45" />
