@@ -7,6 +7,53 @@ title: "@nasa-jpl TroubleTicketsNiSSUes"
 image: Sun_Microsystems_SunFire_X4150_Cluster.jpeg
 ---
 
+
+
+@nasa-jpl is @isro on this one ? D000M0076_603267241RADLF0000_2696M2_0PCT [@esa https://an.rsl.wustl.edu/ins/AN/an3.aspx?](https://an.rsl.wustl.edu/ins/AN/an3.aspx?)
+<img  alt="D000M0076_603267241RADLF0000_2696M2_0PCT" src="https://github.com/user-attachments/assets/e04a7474-f76f-4d5b-a7eb-c1e667a7e089" />
+
+ [InSight](https://eyes.nasa.gov/apps/experience-insight/InSight.html) last image 
+<img  alt="InsightLastImage (2)" src="https://github.com/user-attachments/assets/b2ab0dc5-77db-47cf-8ba1-7f360ddff3cc" />
+
+@nasa-pds so if [InSight](https://eyes.nasa.gov/apps/experience-insight/InSight.html) is in recovery mode, thats what dead bus whats the next move @cityoflosangeles [KarenBass](https://www.congress.gov/member/karen-bass/B001270) plz guide me, its also an astrobiologymission. I have been spending alot of time with @USGS so my mind is on the earthquake monitoring they ordered, we from that perspective   and really dont know how many projects are being hurt by this lander sitting in recovery mode!!!! @TheSpaceDevs    ///////// [NASA's SpaceX Crew-12 Undocking](https://youtu.be/dGSqblvgLIE)
+<img alt="image" src="https://github.com/user-attachments/assets/0f311b4b-5027-4392-880a-c4b0a9e2a20a" />
+
+### [InSight](https://eyes.nasa.gov/apps/experience-insight/InSight.html) Sols 1439-1445 Mission Manager Report
+InSight : The Little Lander That Could
+ 
+On 14 Dec. (Sol1440), telemetry received over our MRO overflight, the lnSight lander showed signs of surprising battery voltages.  Our knee in the curve for battery voltage may be higher than originally projected. This was also an indication that Dead Bus could be a possibility. 
+
+On Sunday 18 Dec. (Sol 1444), we did not receive telemetry over the scheduled ODY overflight.  The orbiter hailed and listened, but did not receive anything from the surface.  At the point the team had narrowed the situation to three possibilities: The lander is operating normally and the comm pass on Sol 1443 (17 Dec.)  was missed due to some unknown cause. We consider this extremely unlikely. Since we did not get the new three-week sequence on board (SciMon 133) during the Saturday comm, the lander would have transitioned to its “runout” sequence, an additional week-long sequence that is appended to each 2-week SciMon sequence in case a new sequence doesn’t make it on board in time. The lander is in SAFE MODE. Safe mode reverts to a comm schedule stored on board called the WUTT (Wake Up Time Table). On 19 Dec., the operation team listened on DSS-14, over the X-band pass scheduled in the WUTT, but did not receive any signals.  This situation has therefore been ruled out.
+ [ @NASA Concludes Antenna Mishap Investigation, Releases Report - Jun 05, 2026 @nasa-JPL](https://www.nasa.gov/directorates/somd/space-communications-navigation-program/nasa-concludes-antenna-mishap-investigation-releases-report/) // [“Dead Bus” – NASA Retires InSight Mars Lander Mission After 4 Years on Red Planet @nasa-pds @nasa-giss](https://scitechdaily.com/dead-bus-nasa-retires-insight-mars-lander-mission-after-4-years-on-red-planet/) // [How NASA Built Artemis II’s Fault-Tolerant Computer/](https://cacm.acm.org/news/how-nasa-built-artemis-iis-fault-tolerant-computer/) // [NASA to repurpose OSIRIS-REx for second asteroid encounter](https://spacenews.com/nasa-to-repurpose-osiris-rex-for-second-asteroid-encounter/)
+
+The lander is in Dead Bus mode. This is the most likely scenario. In this case we would not hear from the lander either on the next scheduled pass, today 19 Dec. (ODY_NSY_2022_354_04).
+ 
+
+The Project will be holding a status meeting shortly after the next scheduled overflight (ODY_NSY_2022_354_04, Last bit time 2022-354T19:30:42.000 UTC 2022-12-20 11:30:42 PST).  The Lander and SEIS are nominal except for the battery and this decline to Dead Bus is now expected.  No Anomaly Response Team will be formed, as the project has set the criteria of two unexplained missed passes to call End Of Mission (EOM).  The Project will send an updated status once we know more.
+
+ 
+
+On the science front, the special issue focusing on the large M4.7 event on Sol 1222 (May 4, 2022), continues to grow with an overview paper and papers about surface wave observations already accepted and many more in the review and revision process.
+@nasa-jpl [an.rsl.wustl.edu/ins/an/downloadFile.aspx?cc=DS&ct=DSA&ici=30165](https://an.rsl.wustl.edu/ins/an/downloadFile.aspx?cc=DS&ct=DSA&ici=30165)
+
+@nasa-pds i see there are fields talking about 
+<img   alt="image" src="https://github.com/user-attachments/assets/43c5dd6e-2999-4525-bb8f-96d54d5b3614" />
+
+<img  alt="image hi @howard-university-web-services this is sol0 of insight @nasa-jpl me coral and erika name on it @foratlanta" src="https://github.com/user-attachments/assets/9e16bce7-4254-42fe-bb91-6d976669ac36" />
+
+
+
+[https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/edr/idc/D001R0008_597251228EDR_F0101_0010M2.VIC @nasa-pds](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0008/mipl/edr/idc/D001R0008_597251228EDR_F0101_0010M2.VIC)
+<img   alt="D001R0008_597251228EDR_F0101_0010M2" src="https://github.com/user-attachments/assets/3ac903c9-9f77-4853-9208-993a4250eeb9" />
+
+insight [https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0000/mipl/rdr/idc/D000M0000_596535424ZPG_F0000_0106M1.VIC](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:nsyt:insight_lander:/insight_cameras/data/sol/0000/mipl/rdr/idc/D000M0000_596535424ZPG_F0000_0106M1.VIC)
+<img  alt="D000M0000_596535424ZPG_F0000_0106M1" src="https://github.com/user-attachments/assets/e244da64-e820-4c92-9e21-37cdcbd91df4" />
+
+this is persevere FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01 @nasa-pds [pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:mars_2020:perseverance:/mars2020_hazcam_ops_calibrated/data/sol/00207/ids/rdr/fcam/FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01.IMG](https://pds-imaging.jpl.nasa.gov/tools/atlas/record?uri=atlas:pds4:mars_2020:perseverance:/mars2020_hazcam_ops_calibrated/data/sol/00207/ids/rdr/fcam/FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01.IMG)
+<img   alt="FRF_0207_0685312912_283RAD_N0071836FHAZ02008_0A00LLJ01" src="https://github.com/user-attachments/assets/f0a07b1b-d2f3-4660-8eec-fe082ce69e82" />
+
+![ @lmco https://www.lockheedmartin.com/content/dam/lockheed-martin/space/photo/InSight/InSight-Hero.jpg](https://www.lockheedmartin.com/content/dam/lockheed-martin/space/photo/InSight/InSight-Hero.jpg)
+
 @nasa , @eodis-nasa @doug-newman-nasa @usgs @la-county-isd hi I wanted to report that the @github account for @Nasa-jpl is under account restrictions [@usdoj I know this was public](https://www.nasa.gov/foia/) like most @nasa GitHub home pages, so its a sign of disablement, please check on the admin @nasa-giss from here its a redirect and there is a flash of [dareMightyThings](https://science.nasa.gov/resource/dare-mighty-things/) ///  [github.com/nasa-jpl/nasa-jpl.github.io](https://github.com/nasa-jpl/nasa-jpl.github.io) but the old front end is not working properly [@la-county-isd holly j mitchell @lacmta](https://en.wikipedia.org/wiki/Talk:Holly_Mitchell)
 <img  alt="image" src="https://github.com/user-attachments/assets/e9a82ce7-d94d-4fda-abc3-9c7ef59f8268" />
 
