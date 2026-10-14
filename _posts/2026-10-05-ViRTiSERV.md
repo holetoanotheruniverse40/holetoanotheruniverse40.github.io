@@ -9,7 +9,34 @@ permalink: /virtiserv
 ---
 
 
+[Earth Triptych from NASA's Juno Spacecraft - jpl.nasa.gov](https://www./images/pia14447-earth-triptych-from-nasas-juno-spacecraft/) pia14447-earth-triptych [image](https://www./images/pia14447-earth-triptych-from-nasas-juno-spacecraft/)
+This trio of Junocam views of Earth was taken during Juno's close flyby on October 9, 2013. 
+![Earth Triptych from NASA's Juno Spacecraft - jpl.nasa.gov](https://d2pn8kiwq2w21t.cloudfront.net/original_images/jpegPIA14447.jpg)
 
+# NOAA Decomm
+#### ["_A Legacy in Orbit: NOAA Decommissions the POES Satellite Constellation_" dated **_August 20, 2025_**](https://www.nesdis.noaa.gov/news/legacy-orbit-noaa-decommissions-the-poes-satellite-constellation?fbclid=IwY2xjawMUdYBleHRuA2FlbQIxMABicmlkETBDcU9WTlJCREZRN2ZrWW5yAR6IQzec4krNbu-xceYkDD_kKohdttMvR4pr_iApGwp7oUI1LFj_-b4pWo7GdA_aem_OPRqBaBTukvStkYRclaOvg)
+@noaa i saw an article titled "_A Legacy in Orbit: NOAA Decommissions the POES Satellite Constellation_" dated **_August 20, 2025_** [FULLARTiCLE`LinK`](https://www.nesdis.noaa.gov/news/legacy-orbit-noaa-decommissions-the-poes-satellite-constellation?fbclid=IwY2xjawMUcOhleHRuA2FlbQIxMABicmlkETBDcU9WTlJCREZRN2ZrWW5yAR7h3dRIKjzt-ArdVKEVmQmkO64bvYIa4YGnKSWH6xnAIhWxDsASnGUP_SWJPg_aem__Mxh1K4hdRJgzpstAjSCAA), @nasa-jpl that was yesterday and [DeepSpaceNetwork](https://eyes.nasa.gov/apps/dsn-now/)_[HelpDesk](https://x.com/thakasartu/status/1931030520860954828) is still [NSN](https://www.nasa.gov/near-space-network/) we even share the tool [SCaN Now](https://scan-now.gsfc.nasa.gov/scan) so if theres hardware that makes random pop ups and it stops i need to know im still working my inventory task from Charles Bolden and Jamie mantel @deptofdefense @nasa-pds @nasa-jpl @nasa and want to make sure everyone is on the same page with the Decomms . I left responses on [@meta Facebook](https://www.facebook.com/profile.php?id=100084464911565) but idk who see them, usually a woman with a lot of power and i still dont trust it... 
+what i left [Workday album](https://www.facebook.com/permalink.php?story_fbid=pfbid0CKXur6CYpKv2rQZT2HU6mtgJFJM9uLLTobkktveGMBuW8xn56PWzETxiGp6emRr8l&id=100084464911565) [AirBus Boat](https://www.facebook.com/permalink.php?story_fbid=pfbid02WzgLUAQEo1825eSHrgdu7KR71RTufrqKujYxBTuCyEXqRZR44Z78r1AvrJ8Nv2REl&id=100084464911565) [JPSS](https://www.facebook.com/permalink.php?story_fbid=pfbid024FMDjGPfJfDszJkkgBmSRk8pMNZNgCESfenjotUk1HFF6b1rCN8bQaM8U3rKePHRl&id=100084464911565)
+
+[FacebookPostReads](https://www.facebook.com/permalink.php?story_fbid=pfbid02F2FS8vz5SAhPNsdNGdZoE5DFdMtNaKq1cYX7smuapBFZJwkDcXyV4ggPLHwBiBXil&id=100084464911565)  i dont want to get dinged for neglecting equipment. If this equipment is #Decommed2025 what does it mean for maintenace and tracking ? Who will bring the units back to earth ? @isro
+
+
+
+<a href="https://www.nesdis.noaa.gov/s3/styles/webp/s3/migrated/POES-Sats.JPG.webp"><img src="https://www.nesdis.noaa.gov/s3/styles/webp/s3/migrated/POES-Sats.JPG.webp" style="width:228px;height:228px;" /></a>
+<img alt="image" src="https://github.com/user-attachments/assets/831ece38-b5e7-4913-8659-39ef11a79e95" />
+
+ SCaN Now! Space Communications and Navigation (SCaN) [LiNK](https://scan-now.gsfc.nasa.gov/)
+<img  alt="SCaN Now! Space Communications and Navigation (SCaN)" src="https://github.com/user-attachments/assets/cbe78e1c-a9ec-4705-84db-7848e0a5b9b1" />
+
+
+
+
+
+[Rescuing a satellite stranded in space - 13 Minutes Presents: The Space Shuttle, BBC World Service - @bbc @youtube @nasa-jpl JUNO MiSSiON](https://www.youtube.com/watch?v=DCgfgLnDZJw)
+[Jupiter Gallery](https://nssdc.gsfc.nasa.gov/photo_gallery/photogallery-jupiter.html)
+
+[DOD INSTRUCTION 8510.01](https://www.esd.whs.mil/Portals/54/Documents/DD/issuances/dodi/851001p.pdf) 
+RISK MANAGEMENT FRAMEWORK FOR DOD SYSTEMS : Effective: July 19, 2022 @nasa @whitehouse @deptofdefense 
 
 # @nasa-jpl OPEnHOUSE
 
