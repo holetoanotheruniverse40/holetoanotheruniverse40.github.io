@@ -8,6 +8,163 @@ author: "RashardKelly @nasa-jpl"
 permalink: /virtiserv
 ---
 
+// [B i z Markie - G0IN'0FF](https://youtu.be/D5s-oH8P004?si=qaQIc-vFCHf0OPLk)
+
+---
+
+
+#### Why Theme Parks Are Suddenly Shutting Down Extreme Rides
+[`WATCH` - https://youtu.be/2OHpSE3zFks?si=V6G-FCnsHKRtDMtB](https://youtu.be/2OHpSE3zFks?si=V6G-FCnsHKRtDMtB)
+<img  alt="image" src="https://github.com/user-attachments/assets/8c1696f1-aa14-4d0a-96b7-8a145cedf756" />
+
+### [Six Flags death](https://yandex.com/search/?text=six+flags+death&lr=20765&family=yes&search_source=yacom_desktop_common): [`WATCH`](https://youtu.be/UpxEZXaBZdY?si=GDtT0p9bwcRT5Dl9)
+State investigators seek answers about roller coaster mishap @newshour [`Link` - Man who died in Six Flags rollercoaster fall in Georgia was a father and educator @guardian](https://www.theguardian.com/us-news/2026/oct/13/six-flags-rollercoaster-death) // [Georgia police identify man who fatally fell off Six Flags roller coaster @nbcnews .com/news/us-news/six-flags-georgia-death-guests-say-man-fell-roller-coaster-rcna603097](https://www.nbcnews.com/news/us-news/six-flags-georgia-death-guests-say-man-fell-roller-coaster-rcna603097) 
+State investigators are searching for answers after a 42-year-old man died following a fall from the Goliath roller coaster at Six Flags Over Georgia. Authorities are investigating whether the tragedy was caused by a mechanical malfunction, a restraint system failure, operator error, or another factor.
+[`WATCH`](https://youtu.be/UpxEZXaBZdY?si=GDtT0p9bwcRT5Dl9)
+The investigation is being led by Georgia's Office of Commissioner of Insurance and Safety Fire, with officials reviewing inspection procedures, ride operations, and safety systems. Investigators are focusing on what went wrong and whether the Goliath ride's restraint system functioned properly.
+[`WATCH`](https://youtu.be/UpxEZXaBZdY?si=GDtT0p9bwcRT5Dl9)
+The victim, identified as Hassan Kariem, died after falling from the roller coaster, an incident that experts say is exceptionally rare. The tragedy has renewed questions about amusement park safety, ride inspections, and accountability as investigators work to determine exactly what happened.
+
+In this report, Channel 2 Action News examines:
+[`WATCH`](https://youtu.be/UpxEZXaBZdY?si=GDtT0p9bwcRT5Dl9)
+What investigators are looking for
+Whether a ride malfunction is being considered
+Questions surrounding the roller coaster's restraint system
+Six Flags' history of ride-related lawsuits
+What could happen next in the investigation
+
+Watch for the latest developments as officials work to uncover what caused this deadly roller coaster incident.
+
+READ MORE: https://2wsb.tv/4zBwGnS
+<img   alt="image" src="https://github.com/user-attachments/assets/8b1eac79-2937-4908-a04c-b1390888c514" />
+
+### NYC Liquid Attack, Six Flags Chaos & Georgia Sub-$1 Gas War
+[`WATCH` - https://youtu.be/XN4VaAuMUC8?si=aeTwme6b-PLHNV5t](https://youtu.be/XN4VaAuMUC8?si=aeTwme6b-PLHNV5t)
+Atlanta Teacher Dies After Fall From Six Flags’ 200-Foot Coaster | Hassan Kariem @lanajharris hi @deptofwar check his relationships @repkarenbass if he spent time in los angeles @Keishaforga [https://youtu.be/jbIGOzc4HZ8?t=242](https://youtu.be/jbIGOzc4HZ8?t=242) hi @NASAJPL i got punched in the face @hot97 thats all im saying about magic city @GavinNewsom @Whitehouse @deptofwar thats not fair @essencemag! @nasa-jpl @cityoflosangeles the castration threats are excessive!!! @newshour the fertility tampering is really scary @jaxa  @ESA @ForAtlanta
+<img   alt="image" src="https://github.com/user-attachments/assets/de1db695-12d1-49f0-84d0-857d69ed00a4" />
+
+Atlanta Teacher Dies After Fall From Six Flags’ 200-Foot Coaster @ForATLANTA @STATEOFCALiFORNiA @SACCOUNTY hi 
+[`WATCH` - https://youtu.be/jbIGOzc4HZ8?si=TsWYq9_a0vIKX5Lp](https://youtu.be/jbIGOzc4HZ8?si=TsWYq9_a0vIKX5Lp)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/b48dc04e-5d4b-4483-8064-7e01f5aef0af" />
+
+Atlanta Teacher Dies After Fall From Six Flags’ 200-Foot Coaster
+[`WATCH` - https://youtu.be/jbIGOzc4HZ8?si=TsWYq9_a0vIKX5Lp](https://youtu.be/jbIGOzc4HZ8?si=TsWYq9_a0vIKX5Lp)
+
+<img   alt="image" src="https://github.com/user-attachments/assets/cfdcec01-c4b3-46e0-a6ff-d541bbadd352" />
+
+
+[4 jpl water @La-County-iSD @nasa @deptofwar](https://science.jpl.nasa.gov/division/earth-science/water-and-ecosystems/) ////// [@nasa-jpl fire.ca.gov/what-we-do/fire-resource-assessment-program/gis-mapping-and-data-analytics](https://www.fire.ca.gov/what-we-do/fire-resource-assessment-program/gis-mapping-and-data-analytics) ////// 
+[cityofsouthgate.org/files/sharedassets/public/v/1/government/departments/public-works/documents/2021-south-gate-water-and-sewer-standard-specifications.pdf](https://www.cityofsouthgate.org/files/sharedassets/public/v/1/government/departments/public-works/documents/2021-south-gate-water-and-sewer-standard-specifications.pdf) ///// [January 2025 Windstorm and Critical Fire Events Bi-Weekly Emergency
+Contracts Report @nasa-jpl @la-county-isd @cbs-news-data @nbcnews assets-us-01.kc-usercontent.com/0234f496-d2b7-00b6-17a4-b43e949b70a2/2af2e449-e0a4-4ce5-a9c9-c3376c731929/Agenda%20102026_links.pdf#page=27](https://assets-us-01.kc-usercontent.com/0234f496-d2b7-00b6-17a4-b43e949b70a2/2af2e449-e0a4-4ce5-a9c9-c3376c731929/Agenda%20102026_links.pdf#page=27) @Nasa-giss hi its [rashard](https://rashardikelly.github.io/) [Andrew @deptofwar @nasa](https://science.gsfc.nasa.gov/sci/bio/andrew.feldman) needs to update The [Los Angeles Board OF Supervisors @la-county-isd](https://bos.lacounty.gov/) on his work locally @nasa-jpl  ![https://www.lavote.gov/Image/logo.png](https://www.lavote.gov/Image/logo.png)
+
+![https://science.jpl.nasa.gov/media/images/Word_cloud_scientists_keywords_20210209_v3.original.jpg](https://science.jpl.nasa.gov/media/images/Word_cloud_scientists_keywords_20210209_v3.original.jpg) 
+
+// [B i z Markie - G0IN'0FF](https://youtu.be/D5s-oH8P004?si=qaQIc-vFCHf0OPLk)
+@blackgirlscode @t.i. hi i dont wanna bug your sister, just saying wassup and i hope you dont have a black eye too - rashard hi [@keishaforga @foratlanta comments](https://youtu.be/D5s-oH8P004?si=qaQIc-vFCHf0OPLk)
+<img   alt="image" src="https://github.com/user-attachments/assets/205a67f4-41ac-4799-8e90-7939cb4ed7cd" />
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A405824475&color=%23e1a416&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/hiphop-classics1" title="Hip Hop Classics" target="_blank" style="color: #cccccc; text-decoration: none;">Hip Hop Classics</a> · <a href="https://soundcloud.com/hiphop-classics1/lord-finesse-funky-technician-1990" title="Lord Finesse - Funky Technician (1989)" target="_blank" style="color: #cccccc; text-decoration: none;">Lord Finesse - Funky Technician (1989)</a></div>
+
+
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A254603541&color=%23e1a416&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/artifacts-2" title="Artifacts" target="_blank" style="color: #cccccc; text-decoration: none;">Artifacts</a> · <a href="https://soundcloud.com/artifacts-2/art-of-facts-lp-dirty-version" title="Art of Facts (LP Dirty Version)" target="_blank" style="color: #cccccc; text-decoration: none;">Art of Facts (LP Dirty Version)</a></div>
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A949487146&color=%230085ff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/visionaries-music" title="Visionaries" target="_blank" style="color: #cccccc; text-decoration: none;">Visionaries</a> · <a href="https://soundcloud.com/visionaries-music/blessings" title="Blessings" target="_blank" style="color: #cccccc; text-decoration: none;">Blessings</a></div>
+
+Replacing the Computer Aided Dispatch System for the Consolidated Fire
+Protection District of Los Angeles County 
+[assets-us-01.kc-usercontent.com/0234f496-d2b7-00b6-17a4-b43e949b70a2/2af2e449-e0a4-4ce5-a9c9-c3376c731929/Agenda%20102026_links.pdf#`page=16`](assets-us-01.kc-usercontent.com/0234f496-d2b7-00b6-17a4-b43e949b70a2/2af2e449-e0a4-4ce5-a9c9-c3376c731929/Agenda%20102026_links.pdf#page=16)
+@nasa-jpl @deptofwar i dont want to get involved the wrong way and lose time from my scheduled work @nasa-pds @eosdis-nasa but its right up our alley [AndrewFeldman](https://scholar.google.com/citations?user=ypZWONYAAAAJ&hl=en) [_Board of Supervisors Agenda TUESDAY, OCTOBER 20, 2026_ @nasa-giss @la-county-isd @CityOfLosangeles](https://assets-us-01.kc-usercontent.com/0234f496-d2b7-00b6-17a4-b43e949b70a2/2af2e449-e0a4-4ce5-a9c9-c3376c731929/Agenda%20102026_links.pdf#page=16) // [andrew.feldman@nasa.gov @nasa-develop @eosdis-nasa](mailto:andrew.feldman@nasa.gov) + [Councilmember.raman@lacity.org @nasa-jpl @eosdis-nasa @CityOfLosAngeles](mailto:Councilmember.raman@lacity.org) [science.gsfc.nasa.gov/sci/bio/`andrew.feldman`](https://science.gsfc.nasa.gov/sci/bio/andrew.feldman)
+
+![https://scholar.googleusercontent.com/citations?view_op=view_photo&user=ypZWONYAAAAJ&citpid=7](https://scholar.googleusercontent.com/citations?view_op=view_photo&user=ypZWONYAAAAJ&citpid=7)
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A215128037&color=%230085ff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/acelasi" title="acelasi" target="_blank" style="color: #cccccc; text-decoration: none;">acelasi</a> · <a href="https://soundcloud.com/acelasi/boot-camp-click-feat-originoo-gunn-clappaz-hard-to-the-core" title="Boot Camp Click Feat. Originoo Gunn Clappaz - Hard To The Core" target="_blank" style="color: #cccccc; text-decoration: none;">Boot Camp Click Feat. Originoo Gunn Clappaz - Hard To The Core</a></div>
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A1107659422&color=%230085ff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/hiphop-classics1" title="Hip Hop Classics" target="_blank" style="color: #cccccc; text-decoration: none;">Hip Hop Classics</a> · <a href="https://soundcloud.com/hiphop-classics1/diamond-d-the-psychotic" title="Diamond D &amp; The Psychotic Neurotics | I Went For Mine (1992)" target="_blank" style="color: #cccccc; text-decoration: none;">Diamond D &amp; The Psychotic Neurotics | I Went For Mine (1992)</a></div>
+
+@foratlanta [adickens@atlantaga.gov](mailto:adickens@atlantaga.gov) 
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay; encrypted-media" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/soundcloud%253Atracks%253A1019432650&color=%230085ff&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/gang-starr-official" title="Gang Starr" target="_blank" style="color: #cccccc; text-decoration: none;">Gang Starr</a> · <a href="https://soundcloud.com/gang-starr-official/glowing-mic-founders-rmx-feat" title="Glowing Mics (Founders RMX) [feat. Big Shug]" target="_blank" style="color: #cccccc; text-decoration: none;">Glowing Mics (Founders RMX) [feat. Big Shug]</a></div>
+
+### Karen Bass VS Nithya Raman:
+
+[`WATCH` - _Who Should Be L.A.’s Mayor?_ @cityoflosangeles @la-county-isd](https://youtu.be/sH2CRsTVqrs?si=BdYxRgfbydL-ZgFW)
+[Councilmember.raman@lacity.org @nasa-jpl @eosdis-nasa](mailto:Councilmember.raman@lacity.org) // [Mayor Karen Bass](https://pahx.org/bios/bass-karen/)
+
+<img  alt="image" src="https://github.com/user-attachments/assets/77e44039-3ba6-401e-91c0-abce204118ce" />
+
+[San Juan Capistrano, CA, USA](https://worldview.earthdata.nasa.gov/?v=-120.28865546369173,32.35939751783922,-116.17950782056576,34.381868623440276&as=2026-10-06-T00%3A00%3A00Z&ae=2026-10-16-T00%3A00%3A00Z&l=Reference_Labels_15m(hidden),DoS_International_Boundaries(hidden),Admin_Boundaries(hidden),Coastlines_15m,VIIRS_NOAA21_CorrectedReflectance_BandsM3-I3-M11,VIIRS_NOAA21_CorrectedReflectance_BandsM11-I2-I1,OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor(hidden),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&ab=on&s=-117.6628,33.5019&t=2026-10-16-T22%3A30%3A10Z)
+<img  alt="image" src="https://github.com/user-attachments/assets/8c1217b0-ed7a-4e25-b81f-a17bbf8adb98" />
+
+<img  alt="LC09_L1TP_041036_20261016_20261016_02_T1_TIR" src="https://github.com/user-attachments/assets/ddef0762-9682-4de0-8751-edb8425cf63d" />
+
+![https://eros.usgs.gov/sites/eros.usgs.gov/themes/custom/eros_external/media/earthshots/EarthshotsLogo.png](https://eros.usgs.gov/sites/eros.usgs.gov/themes/custom/eros_external/media/earthshots/EarthshotsLogo.png)
+
+//// Satellite images reveal how people and nature change the Earth's landscape over time. We invite you to explore more than 100 unique locations around the world where satellites reveal the stories as the lands change. Click a location on the globe [https://eros.usgs.gov/earthshots](https://eros.usgs.gov/earthshots)
+<img  alt="image" src="https://github.com/user-attachments/assets/400be61e-8f0d-4089-bf13-73358f2adbbf" />
+
+[worldview.earthdata.nasa.gov/?v=-154.3182122552031,0.37286535391440623,-88.2390876219372,37.54237296012646&as=2026-10-06-](https://worldview.earthdata.nasa.gov/?v=-154.3182122552031,0.37286535391440623,-88.2390876219372,37.54237296012646&as=2026-10-06-T00%3A00%3A00Z&ae=2026-10-16-T00%3A00%3A00Z&l=Reference_Labels_15m(hidden),DoS_International_Boundaries(hidden),Admin_Boundaries(hidden),Coastlines_15m(hidden),VIIRS_NOAA20_DayNightBand,OCI_PACE_True_Color(hidden),VIIRS_NOAA21_CorrectedReflectance_TrueColor(hidden),VIIRS_NOAA20_CorrectedReflectance_TrueColor(hidden),VIIRS_SNPP_CorrectedReflectance_TrueColor(hidden),MODIS_Aqua_CorrectedReflectance_TrueColor(hidden),MODIS_Terra_CorrectedReflectance_TrueColor&lg=true&al=true&ab=on&t=2026-10-16-T00%3A00%3A00Z) /////// [Shake Movie for M5.2 Julian earthquake](https://www.usgs.gov/media/videos/shake-movie-m52-julian-earthquake)
+<img  alt="nasa-worldview-2026 OCT 06-to-2026 OCT 16" src="https://github.com/user-attachments/assets/8c1e4fa0-e43b-43b8-8b5a-3af8af8576c7" />
+We acknowledge the use of imagery from the NASA Worldview application (https://worldview.earthdata.nasa.gov), part of the NASA Earth Science Data and Information System (ESDIS).
+
+
+[ firms.modaps. @eosdis .nasa.gov/usfs/map/#d:24hrs,24hrs;l:fires_all,active-ca,active-usa,fire-perimeter,countries,terra_crc,earth;@-117.653,33.478,13.138z](https://firms.modaps.eosdis.nasa.gov/usfs/map/#d:24hrs,24hrs;l:fires_all,active-ca,active-usa,fire-perimeter,countries,terra_crc,earth;@-117.653,33.478,13.138z)
+<img  alt="image" src="https://github.com/user-attachments/assets/70575e29-fb2b-44f1-83d3-f7a424019f07" />
+
+A look at the footprint of the Norte Fire and wind forecasts [@nasa-jpl https://youtu.be/zDNwlpD0zsk?si=iQwsEwOW95vtUPot](https://youtu.be/zDNwlpD0zsk?si=iQwsEwOW95vtUPot)
+<img  alt="image" src="https://github.com/user-attachments/assets/d3ddc6ca-3a3c-498c-921a-9736632106d7" />
+
+[@cItyOfloSaNGELES Lafd.org/about/about-lafd/contact @la-county-isd](https://lafd.org/about/about-lafd/contact) @cbs-news-data 
+Fire Temperature key:1 - Warm fire/2 - Very warm fire/3 - Hot fire/4 - Very hot fire/5 - Burn scars/6 - Clear sky: land/7 - Clear sky: water/snow/night/8 - Water clouds/9 - Ice clouds [star.nesdis.noaa.gov/goes/sector_band.php?sat=G18&sector=psw&band=FireTemperature&length=24](https://www.star.nesdis.noaa.gov/goes/sector_band.php?sat=G18&sector=psw&band=FireTemperature&length=24)
+![https://www.star.nesdis.noaa.gov/goes/images/colorbars/ColorBar450FireTemp.png](https://www.star.nesdis.noaa.gov/goes/images/colorbars/ColorBar450FireTemp.png) 
+
+
+fixed
+<img alt="G18_sector_psw_FireTemperature_12fr_20261016-1827" src="https://github.com/user-attachments/assets/4d723bfd-69e6-437e-8980-d25cdf1e0f64" />
+
+
+[@EOSDIS-NASA firms.modaps.eosdis.nasa.gov/usfs/map/#m:advanced;d:2026-10-14..2026-10-15,24hrs;l:fires_landsat_landsat,fires_modis_aqua,fires_modis_terra,fires_viirs_noaa20,fires_viirs_noaa21,fires_viirs_snpp,active-ca,active-usa,fire-perimeter,countries,aqua_srb721,earth;@-117.59,33.20,9.43z](https://firms.modaps.eosdis.nasa.gov/usfs/map/#m:advanced;d:2026-10-14..2026-10-15,24hrs;l:fires_landsat_landsat,fires_modis_aqua,fires_modis_terra,fires_viirs_noaa20,fires_viirs_noaa21,fires_viirs_snpp,active-ca,active-usa,fire-perimeter,countries,aqua_srb721,earth;@-117.59,33.20,9.43z)
+<img alt="FIRMS_2026-10-14_2026-10-15,24hrs @-117 59,33 20,9 43z" src="https://github.com/user-attachments/assets/9e8387fe-0b6a-4bb7-a2ec-a84b6e032101" />
+
+
+<img alt="image" src="https://github.com/user-attachments/assets/0213ec10-c560-4ab9-94dd-ce188ad48daf" />
+
+[@CITYOFLOSANGELES -firms.modaps.eosdis.nasa.gov/usfs/map/#d:24hrs,24hrs;l:fires_all,active-ca,active-usa,fire-perimeter,countries,aqua_crc,earth;@-117.5,33.6,8.7z](https://firms.modaps.eosdis.nasa.gov/usfs/map/#d:24hrs,24hrs;l:fires_all,active-ca,active-usa,fire-perimeter,countries,aqua_crc,earth;@-117.5,33.6,8.7z) 
+
+<img   alt="FIRMS_24hrs,24hrs @-117 5,33 6,8 7z" src="https://github.com/user-attachments/assets/a8b16cc7-215e-49b9-8738-e1b366b78ad2" />
+
+<img  alt="image" src="https://github.com/user-attachments/assets/89ab782e-44b0-44f5-870b-f876dead0c38" />
+
+### How to Use @USGS EarthExplorer to Download Imagery
+By - [Earth Resources Observation and Science (EROS) Center usgs.gov/centers/eros @cITYoFlOSaNGELES @LA-COUNTY-ISD @NASA-JPL](https://www.usgs.gov/centers/eros)
+July 17, 2026
+
+@ForAtlanta is [Lana](https://www.tiktok.com/@lanajharris/video/7496589297793994026?lang=en) perms here ? She said "Out HEre in @StateofCalifornia" in a broadcast
+[usgs.gov/media/videos/how-use-usgs-earthexplorer-download-imagery](https://www.usgs.gov/media/videos/how-use-usgs-earthexplorer-download-imagery) [@nasa-jpl Our first time visiting NASA jet propulsion laboratory near LA. A MUST SEE!!](https://youtube.com/shorts/USuo_zOnvck?si=IWgpdLN2JxiJTbdp)
+<img  alt="image" src="https://github.com/user-attachments/assets/a51358d0-bca2-4c61-a380-e659de2daaa6" />
+
+
+![image - RASHARDIMANKELLY PRACTIFCEMAD](https://github.com/user-attachments/assets/5be21c81-f8bd-4505-b33f-2fe7c7e1350e)
+![https://science.nasa.gov/mission/mars-2020-perseverance/ingenuity-mars-helicopter/](https://www.google.com/logos/fnbx/ingenuity/heli_dark.gif)
+
+
+<picture itemprop="productionCompany" itemtype="https://schema.org/Organization">
+  
+  <source src="https://ecostress.jpl.nasa.gov/logo.png" type="image/png" />
+  
+  <source src="https://github.com/user-attachments/assets/ca25b7f2-76f1-42b6-8882-9d0f09fc6363" type="image/png" />
+  
+  <img itemprop="countryOfOrigin" itemtype="https://schema.org/Country" alt="logo https://ecostress.jpl.nasa.gov/logo.png" src="https://github.com/user-attachments/assets/ca25b7f2-76f1-42b6-8882-9d0f09fc6363" />
+  
+</picture>
+
+## Rashard Kelly 
+MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/) . . . @ucla hi from [Remote @Nasa-JPL](https://holetoanotheruniverse40.github.io/compiling/) // [virtiserv](https://www.facebook.com/thevirtiservway/)  // @esa @usgs @alphagov ~ @whitehouse @la-county-isd @UKSpaceAgency hi @eSA @blackgirlscode @eu-cdse
+
+
+[@ForAtlanta Royal Absurdities Episode 3: Tip's Birthday @nasa-pds](https://youtu.be/DOxsq0HcqE0?t=1)
+
 
 [Earth Triptych from NASA's Juno Spacecraft - jpl.nasa.gov](https://www./images/pia14447-earth-triptych-from-nasas-juno-spacecraft/) pia14447-earth-triptych [image](https://www./images/pia14447-earth-triptych-from-nasas-juno-spacecraft/)
 This trio of Junocam views of Earth was taken during Juno's close flyby on October 9, 2013. 
