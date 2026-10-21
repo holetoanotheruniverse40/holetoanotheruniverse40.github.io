@@ -8,6 +8,12 @@ author: "RashardKelly @nasa-jpl"
 mathjax: true
 ---
 
+
+
+[Amen (Intro) · CyHi](https://youtu.be/37S0l3009gU) // [Hypnotize (Intro) · Young Jeezy](https://youtu.be/zcrLvkF19Nk?si=jxhI-NpnJjKnTJ1s) // [Bob Marley - Is This Love](https://youtu.be/69RdQFDuYPI?si=NMB8sqLgvqV1rrfm) // [Bob Marley & The Wailers - Jamming](https://youtu.be/oqVy6eRXc7Q?si=h4IyNpUZ6cbUEgG6) // [Bob Marley - Could You Be Loved ](https://youtu.be/WOvSSC0UsPI?si=xO9n2x4dfXkwqN1f) // [NICKI MINAJ "Bust Down Barbiana" @ForAtlanta!](https://youtu.be/oMXn0HSxoys?si=LCnwbTpHI2XoRbGh) // [Yo Gotti - Down In the DM](https://youtu.be/YXSpXO4N-tI?list=RDYXSpXO4N-tI) // [Whatcha Gonna Do · Peter Tosh _Legalize It_](https://youtu.be/G9QrgHK1fwo?si=xGh5pAmHskGpYiGv) // True Democracy · Steel Pulse
+[🎼_Steel Pulse - Chant A Psalm_ - youtu.be/4nony-xB3tE?list=RD4nony-xB3tE](https://youtu.be/4nony-xB3tE?list=RD4nony-xB3tE) // [T.I. - LET 'EM KNOW ](https://youtu.be/mcg4z1gGbEw?t=5) // [T.I. - Wit Me ft. Lil Wayne](https://youtu.be/WaV4Bc31OPA?list=RDWaV4Bc31OPA) // [MAX ROMEO - Chase The Devil ](https://youtu.be/XcMNfX5yh28?t=14) // [Under Mi Sensi · Barrington Levy](https://youtu.be/uozhx1xeTDg?list=RDuozhx1xeTDg) // [Musical Youth - Pass The Dutchie](https://youtu.be/EsyUa63NM1E?t=16) // [New Edition - Mr. Telephone Man](https://youtu.be/YTdxdr9pNnw) // 
+[GloRilla Live at MadisonSquareGarden](https://archive.org/details/GloRilla2024-05-21?webamp=default)
+
 [virtiserv.github.io](https://youtu.be/P1K-uC-ZQso?is=8LQ8ZHTm8IU1Dzr2)
 
 
